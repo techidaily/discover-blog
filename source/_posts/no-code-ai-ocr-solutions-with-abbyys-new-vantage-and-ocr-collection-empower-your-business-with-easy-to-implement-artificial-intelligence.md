@@ -1,7 +1,7 @@
 ---
 title: No-Code AI OCR Solutions with ABBYY's New Vantage and OCR Collection - Empower Your Business With Easy-to-Implement Artificial Intelligence
-date: 2024-08-21 16:47:46
-updated: 2024-08-22 11:58:49
+date: 2024-08-21T15:00:47.828Z
+updated: 2024-08-22T15:00:47.828Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4abfbbef4983e1874c191caba.jpg
@@ -53,6 +53,9 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

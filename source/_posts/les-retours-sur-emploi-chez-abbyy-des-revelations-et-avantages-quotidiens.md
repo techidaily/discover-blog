@@ -1,7 +1,7 @@
 ---
 title: "Les Retours Sur Emploi Chez ABBYY: Des Révélations Et Avantages Quotidiens"
-date: 2024-08-21 11:49:18
-updated: 2024-08-22 11:49:19
+date: 2024-08-21T15:00:46.079Z
+updated: 2024-08-22T15:00:46.079Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191cb1e756a607d3720738205f.png
@@ -103,34 +103,52 @@ Au cours des dernières années, nos employés nous ont toujours attribué des n
 
 Comme la plupart des entreprises prospères, nous nous efforçons de concevoir nos produits de manière à pouvoir les distinguer et mieux servir nos clients ; pour ce faire, nous devons être capables d’innover – l’innovation est une fonction du défi et de la pensée non linéaire, qui est à son tour favorisée par des individus qui représentent des perspectives différentes. Pour recruter et retenir des talents divers, nous devons offrir un environnement inclusif – une communauté où les différences sont célébrées et où chacun se sent à sa place. C’est notre aspiration et notre vision pour ABBYY. » 
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Responsabilité environnementale et sociale (RSE) 
 
 Chez ABBYY, les initiatives RSE revêtent une importance capitale depuis longtemps. Non seulement nos produits aident des centaines de clients dans le monde entier à gagner en efficacité et à améliorer leurs pratiques de gestion des ressources, mais nous avons également développé nos propres initiatives pour promouvoir la durabilité et la responsabilité sociale. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ##### Un arbre planté pour chaque affaire conclue 
 
 Pour chaque nouveau contrat conclu avec un client, nous faisons don d’un arbre par l’intermédiaire de One Tree Planted, ce qui nous a permis de planter plus de 2 000 arbres en 2021\. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ##### Congés payés pour une bonne cause 
 
 Chacun dispose de deux jours rémunérés par an pour soutenir des causes qui lui tiennent à cœur. L’année dernière, plus de 40 causes ont ainsi été soutenues. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Sur la voie de la neutralité carbone 
 
 Depuis 2023, nous mesurons l’empreinte carbone de nos déplacements et investissons dans des programmes de compensation. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Notre défi estival ABBYY 
 
 Chaque année, nous organisons une compétition sportive internationale, avec des dons à des ONG pour chaque kilomètre parcouru par nos collègues en courant, en pédalant, en marchant ou en nageant. 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### En savoir plus sur ABBYY 
 
 [Équipe de direction](https://tools.techidaily.com/abbyy/products/)[Éléments-clés sur ABBYY](https://static1.abbyy.com/abbyycommedia/36280/infographic-key-facts-fr.pdf)

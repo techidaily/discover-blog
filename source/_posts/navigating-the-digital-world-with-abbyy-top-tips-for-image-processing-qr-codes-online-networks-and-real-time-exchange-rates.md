@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Digital World with ABBYY: Top Tips for Image Processing, QR Codes, Online Networks & Real-Time Exchange Rates"
-date: 2024-08-20 22:29:14
-updated: 2024-08-22 12:45:37
+date: 2024-08-21T15:00:47.814Z
+updated: 2024-08-22T15:00:47.814Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48f1b4b94f775b917cb35db1cb2a6e0b4e7bb5a94596326658045bbf739cd9ff.jpg
@@ -91,18 +91,27 @@ Do you want to take original one-of-a-kind photos with S8? Use built-in filters.
 
 ![Filters Food mode Camera Android](https://static1.abbyy.com/abbyycommedia/26349/food-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Pro mode**
 
 The Pro mode allows you to take professional photos with three types of settings: Exposure time, Exposure, and White Balance. To activate the mode, swipe right and click Pro. Here you can configure shutter speed, white balance, and exposure level. This mode allows you to set the focus and configure exposure and sensitivity just like in professional DSLR cameras.
 
 ![exposure Pro mode Camera Android](https://static1.abbyy.com/abbyycommedia/26350/exposure-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 **Dynamic focus**
 
 Want to add a blurry background on Samsung S8? There is no need to install third-party applications for this purpose. Camera on Samsung features three types of focusing: close, far, and panoramic. Dynamic focusing lets you adjust image sharpness and focus depth. With this mode, you may take portrait images of two types: regular and wide angle.
 
 ![Dynamic focus Camera Android Samsung S8](https://static1.abbyy.com/abbyycommedia/26351/dynamic-focus-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Dual Pixel technology**
 
 [Dual Pixel](https://www.gsmarena.com/samsungs%5Fdual%5Fpixel%5Ftech%5Fis%5Flike%5Fcanons%5Fdual%5Fpixel%5Fauto%5Ffocus-news-16805.php) enables you to take focused pictures in motion and in places with bad lighting. This technology will catch every moment even if you are on the move.
@@ -113,6 +122,9 @@ Samsung surely follows modern trends. The frontal camera of Samsung [S8](https:/
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 **Object recognition**
 
 Samsung camera is trained to recognized objects on photos and search for similar images in the internet with the [Bixby](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fapps%2Fbixby%2F) assistant. To activate Bixby, click the special button on your phone. Point your camera at an object or a landscape and the assistant will display related images and links that you can follow to buy these objects on the internet.
@@ -147,6 +159,9 @@ Are you planning on going abroad but still afraid that you won’t know the exch
 
 ![App Valuta+ Currency Converter ios](https://static1.abbyy.com/abbyycommedia/26353/currency1-1.png)![iphone android application valuta+ currency](https://static1.abbyy.com/abbyycommedia/26354/currency2-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 This user-friendly app converts over 170 currencies, works offline, and has a favorites list.
 
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
@@ -157,6 +172,9 @@ _By Elizaveta Titarenko, Copywriter_
 
 ![abbyy advice rock climbing wall](https://static1.abbyy.com/abbyycommedia/26355/elizaveta-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 Why engage in rock climbing?
 
 Over a year ago I went to a climbing wall for the first time. It helped to keep myself in good shape, develop endurance and stamina, and find new friends. Before I took up rock climbing I though that this is a sport only for professionals, those with steel muscles and will. But I was wrong.

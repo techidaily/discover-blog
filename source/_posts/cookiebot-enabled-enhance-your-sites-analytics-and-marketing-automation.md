@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics & Marketing Automation"
-date: 2024-08-21 14:35:31
-updated: 2024-08-22 10:33:25
+date: 2024-08-21T15:00:47.613Z
+updated: 2024-08-22T15:00:47.613Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9a22b51aefec4c58f2a1f5a5ec87dbc393141382248bd9298fb623a960664270.jpeg
@@ -50,10 +50,16 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_

@@ -1,7 +1,7 @@
 ---
 title: "Unraveling the Distinctions: OCR Vs. IDP - A Detailed Comparison"
-date: 2024-08-19 11:50:31
-updated: 2024-08-22 11:23:37
+date: 2024-08-21T15:00:47.034Z
+updated: 2024-08-22T15:00:47.034Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b070e6743a1524b127e144e2.jpg
@@ -37,6 +37,9 @@ Bevor es OCR gab, musste man zur Dateneingabe Text manuell in ein Computersystem
 
 ![](https://static1.abbyy.com/abbyycommedia/37740/ds-66-ocr-idp-image-1b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Wie es funktioniert
 
 OCR beginnt mit der Datei, aus der Sie Informationen extrahieren möchten. Dabei kann es sich um ein gescanntes Dokument, eine PDF-Datei oder um Fotos von Papierdokumenten handeln. Moderne OCR-Plattformen können automatisch die Qualität verbessern, den Kontrast erhöhen und die Auflösung schärfen, um die Genauigkeit zu erhöhen. Als Nächstes verwenden die OCR-Algorithmen vorab trainierte Extraktionsmodelle, um Wörter und Zeilen im Bild zu identifizieren und einzelne erkannte Zeichen zu extrahieren.
@@ -56,12 +59,30 @@ Die extrahierten Daten werden dann mit einer Reihe von vordefinierten Mustern od
 
 Typische Anwender von OCR-Lösungen sind unter anderem Organisationen, die damit zur Einhaltung von behördlichen und unternehmensinternen Vorschriften große Mengen an Papier- und digitalen Dokumenten in barrierefreie und durchsuchbare Formate umwandeln, Anwaltskanzleien, die gedruckte Verträge in bearbeitbare digitale Formate für die Suche, eDiscovery und Datenanalyse umwandeln, Unternehmen des Gesundheitswesens, die Patientenakten auf ihr Computersystem übertragen, um die Einhaltung des HIPAA zu gewährleisten, Bibliotheken und Archive, die historische Dokumente in digitaler Form aufbewahren, damit die Mitarbeiter eines Unternehmens ihre tägliche Arbeit mit Dokumenten effizient erledigen können, und Softwareentwickler, die Inhaltsdienste, digitale Archivierung, Dokumentenverwaltungssysteme (DMS) und ECM-Lösungen (Enterprise Content Management) entwickeln.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Was ist IDP?
 
 [Intelligente Dokumentenverarbeitung](https://tools.techidaily.com/abbyy/products/) **(IDP) ermöglicht die durchgängige Verarbeitung von Dokumenten durch automatisches Erfassen, Extrahieren und Verarbeiten von Daten, die in Geschäftsdokumenten eingebettet sind,** in nahezu jedem Prozess in jeder Branche.
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Wie es funktioniert
 
 IDP beinhaltet eine optische Zeichenerkennung (OCR), um gedruckten oder handschriftlichen Text in ein maschinenlesbares Format umzuwandeln. IDP nutzt darüber hinaus Techniken der künstlichen Intelligenz (KI) und des maschinellen Lernens (ML), um strukturierte, halbstrukturierte und unstrukturierte Daten in Dokumenten wie ein Mensch zu lesen, zu verstehen und zu verarbeiten.
@@ -72,6 +93,9 @@ Durch die Einbeziehung der Verarbeitung natürlicher Sprache (NLP) ist die Techn
 
 Die [IDP-Plattform](https://tools.techidaily.com/abbyy/products/) lässt sich problemlos in eine Vielzahl verschiedener Unternehmenssysteme integrieren, wie z. B. ERP- oder CRM-Systeme. Mit den neuen Low-Code/No-Code-Plattformen können Laienentwickler (Citizen Developers) die IDP-Technologie innerhalb weniger Tage einsetzen, ohne dass auf Kundenseite umfangreiche IT-Infrastrukturunterstützung und -wartung erforderlich ist.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Vorteile von IDP
 
 In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizierten Ressourcen in kürzerer Zeit mehr zu leisten. Unternehmen konzentrieren sich auf die Verbesserung des Kunden- und Mitarbeitererlebnisses, um so Umsatz, Gewinnspanne und Kundenbindung zu steigern. Intelligente Dokumentenverarbeitung (IDP) kann in beiderlei Hinsicht erhebliche Vorteile bringen und Unternehmen eine erfolgreiche digitale Transformation ermöglichen.
@@ -131,6 +155,9 @@ Mit intelligenter Dokumentenverarbeitung können Sie die Hindernisse beseitigen,
 
 [Demo anfordern](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## Häufig gestellte Fragen
 
 [Verwendet IDP OCR?](https://tools.techidaily.com/abbyy/products/)

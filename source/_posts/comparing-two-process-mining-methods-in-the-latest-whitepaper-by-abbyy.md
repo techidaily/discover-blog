@@ -1,7 +1,7 @@
 ---
 title: Comparing Two Process Mining Methods in the Latest Whitepaper by ABBYY
-date: 2024-08-19 22:13:44
-updated: 2024-08-22 12:59:33
+date: 2024-08-21T15:00:46.700Z
+updated: 2024-08-22T15:00:46.700Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8e5fc7dc88cdf6b3a3cfcace.jpg
@@ -33,12 +33,18 @@ This approach can be applied to industries and verticals:
 
 **The Timeline Approach to process analytics provides 100% visibility of any process end to end; even when different steps of the process are performed using multiple back end systems.**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read White paper](https://digital.abbyy.com/hubfs/content/whitepaper-timeline-vsschemaprocessanalytics-en.pdf "Read White paper") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

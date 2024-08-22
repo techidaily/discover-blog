@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Knowledge Management Solutions: ABBYY Featured Amongst the World's Leading Companies in KMWorld Rankings"
-date: 2024-08-19 23:42:59
-updated: 2024-08-22 12:42:27
+date: 2024-08-21T15:00:46.555Z
+updated: 2024-08-22T15:00:46.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641c62a676cf0d7c5aa1dfbffa.jpg
@@ -49,3 +49,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

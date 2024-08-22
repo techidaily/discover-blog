@@ -1,7 +1,7 @@
 ---
 title: "Modernizing Infrastructure: ABBYY Powers Munich's Transition to Digital Archiving"
-date: 2024-08-21 17:46:40
-updated: 2024-08-22 11:49:59
+date: 2024-08-21T15:00:46.882Z
+updated: 2024-08-22T15:00:46.882Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f14703ab2e75a5e3ef7cee5c0a7ee5ddd2895b6cfd7b5126052dee0bd06c1845.jpg
@@ -71,3 +71,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->

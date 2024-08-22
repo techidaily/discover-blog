@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing User Interaction: ABBYY Unveils Cutting-Edge Mobile Capture SDK for Enhanced Customer Engagement"
-date: 2024-08-19 20:35:10
-updated: 2024-08-22 12:47:46
+date: 2024-08-21T15:00:46.907Z
+updated: 2024-08-22T15:00:46.907Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7216cdd0db0d51b9ba6ea43c8d26dd6a0eb4cf5b262743a458e3d7ee3b2754cf.jpeg
@@ -69,3 +69,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->

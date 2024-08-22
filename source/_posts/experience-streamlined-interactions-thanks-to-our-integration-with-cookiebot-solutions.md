@@ -1,7 +1,7 @@
 ---
 title: Experience Streamlined Interactions, Thanks to Our Integration with Cookiebot Solutions
-date: 2024-08-20 21:34:54
-updated: 2024-08-22 12:30:37
+date: 2024-08-21T15:00:45.985Z
+updated: 2024-08-22T15:00:45.985Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e452b20253ad5c2d81a1eb51a.jpg
@@ -54,6 +54,9 @@ The latest set of new document skills include:
 
 All these skills are available to try out simply by downloading them from the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Vantage release 2.3 highlights
 
 **Latest release delivers on performance, accuracy, and speed**
@@ -62,6 +65,9 @@ In the latest [Vantage release](https://tools.techidaily.com/abbyy/products/), w
 
 Together, these enhancements make it easier to deploy IDP solutions taking a no-code / low-code approach. Take, for example, processing data from invoices. This not only starts with identifying the vendor invoice and extracting data but often requires detecting the start and end of many invoices in one PDF file. Available in the Vantage release is a new document splitting skill, where Vantage will auto-detect the start and end of a multi-page document like an invoice, eliminating any manual work that would otherwise be required.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Turn your documents into actionable data
 
 There's a skill for that.
@@ -72,6 +78,9 @@ The ability to extract table data can be challenging with documents like invoice
 
 It is also worth highlighting the latest ABBYY announcement on [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/), delivering instant identity proofing and affirmation as part of customer onboarding, new account opening, claims, and enrollment processes. It is the point where the customer provides proof of their identity via ID cards, photos, and supporting documents, so the business can determine that they are who they say they are.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Get started today!
 
 We’re very excited about the latest [Vantage](https://tools.techidaily.com/abbyy/products/) 2.3 release as we continue to advance the core AI document understanding technology, build pre-trained skills (models), and align with businesses to simplify document automation. You can learn more about all this exciting release by registering for the upcoming [Vantage 2.3 webinar](https://tools.techidaily.com/abbyy/products/) and try out the new capabilities in your Vantage tenant or [request a demo](https://tools.techidaily.com/abbyy/products/).
@@ -80,8 +89,14 @@ We’re very excited about the latest [Vantage](https://tools.techidaily.com/abb
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 Bill Galusha
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

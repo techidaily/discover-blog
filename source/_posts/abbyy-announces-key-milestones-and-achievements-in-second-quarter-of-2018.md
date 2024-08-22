@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Key Milestones and Achievements in Second Quarter of 2018
-date: 2024-08-19 14:12:55
-updated: 2024-08-22 11:22:22
+date: 2024-08-21T15:00:46.162Z
+updated: 2024-08-22T15:00:46.162Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d4104755754e528cce96e41f403.jpg
@@ -136,3 +136,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->

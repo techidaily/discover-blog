@@ -1,7 +1,7 @@
 ---
 title: Simplify Scanning on iPhone/iPad - Add New ABBYY Siri Shortcuts for TextGrabber and FineScanner Applications
-date: 2024-08-20 13:55:20
-updated: 2024-08-22 11:24:49
+date: 2024-08-21T15:00:46.927Z
+updated: 2024-08-22T15:00:46.927Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3df9ba6a1aa455dbcac03eedf.jpg
@@ -74,3 +74,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->

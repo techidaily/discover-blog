@@ -1,7 +1,7 @@
 ---
 title: Erweiterte Funktionen Der eDiscovery-Lösung Von Deloitte Erhöhen Effizienz Und Leistung
-date: 2024-08-20 17:33:21
-updated: 2024-08-22 12:40:52
+date: 2024-08-21T15:00:45.692Z
+updated: 2024-08-22T15:00:45.692Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d58887a0de4be9b5a76727ac2.jpg
@@ -91,6 +91,9 @@ Mit der neuen, nahtlos eingebundenen Lösung können Dokumente in der eDiscovery
 
 Teilen  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

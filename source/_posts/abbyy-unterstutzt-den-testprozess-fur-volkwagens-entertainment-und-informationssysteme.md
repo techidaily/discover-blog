@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unterstützt Den Testprozess Für Volkwagens Entertainment- Und Informationssysteme
-date: 2024-08-21 18:46:35
-updated: 2024-08-22 10:42:50
+date: 2024-08-21T15:00:47.514Z
+updated: 2024-08-22T15:00:47.514Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e31d50b2743110f134bc23265ecc5f29f1da28d78cf8611e5eb4517444d9187a.jpg
@@ -90,6 +90,9 @@ Die Testabteilung stellte hohe Anforderungen an den Einsatz der ABBYY OCR Engine
 
 Teilen  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

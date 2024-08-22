@@ -1,7 +1,7 @@
 ---
 title: Accelerated Text Recognition with ABBYY’s Updated NeoML Python Version – Experience 10X Faster Processing!
-date: 2024-08-19 21:17:19
-updated: 2024-08-22 12:33:35
+date: 2024-08-21T15:00:47.130Z
+updated: 2024-08-22T15:00:47.130Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace6815f6a294b656d072c86df72.jpg
@@ -39,22 +39,35 @@ To learn more about NeoML, please visit: <https://github.com/neoml-lib/neoml>
 
 To learn more about ABBYY’s Digital Intelligence solutions, please visit: <https://www.abbyy.com/>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/).[](https://tools.techidaily.com/abbyy/products/)
 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### ABBYY editorial contact
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Catherine Johnson
 
 [catherine.johnson@abbyy.com](https://tools.techidaily.com/abbyy/products/)
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 (949) 370-0941

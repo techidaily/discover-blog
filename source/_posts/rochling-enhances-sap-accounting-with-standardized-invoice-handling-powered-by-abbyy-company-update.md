@@ -1,7 +1,7 @@
 ---
 title: Röchling Enhances SAP Accounting with Standardized Invoice Handling, Powered by ABBYY - Company Update
-date: 2024-08-20 20:35:15
-updated: 2024-08-22 10:19:34
+date: 2024-08-21T15:00:47.441Z
+updated: 2024-08-22T15:00:47.441Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a3717610151f0f8cc3caeaae.jpg
@@ -71,3 +71,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

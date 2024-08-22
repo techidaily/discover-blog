@@ -1,7 +1,7 @@
 ---
 title: Enrichit by ABBYY - Unveiling a Robust Open Library with Advanced NeoML Features for Data Management
-date: 2024-08-21 23:44:42
-updated: 2024-08-22 12:29:22
+date: 2024-08-21T15:00:45.953Z
+updated: 2024-08-22T15:00:45.953Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b6976e6cb0861a8e856af8d9b91eb1dc370f068cc6322414a1134e31c0876a0.jpg
@@ -64,3 +64,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

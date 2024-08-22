@@ -1,7 +1,7 @@
 ---
 title: Amélioration Des Procédures Clés Chez La Banque Populaire De L'Ouest Grâce À ABBYY - Innovations en Ligne
-date: 2024-08-19 14:39:22
-updated: 2024-08-22 12:24:50
+date: 2024-08-21T15:00:46.208Z
+updated: 2024-08-22T15:00:46.208Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2077f1c448ea137a042adda99cddc314210e831040b4d1625093a313f8396691.JPG
@@ -75,3 +75,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->

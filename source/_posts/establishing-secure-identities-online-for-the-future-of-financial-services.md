@@ -1,7 +1,7 @@
 ---
 title: Establishing Secure Identities Online for the Future of Financial Services
-date: 2024-08-20 12:50:26
-updated: 2024-08-22 11:33:20
+date: 2024-08-21T15:00:47.736Z
+updated: 2024-08-22T15:00:47.736Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/064bb5c43db4056e998dcb4f406cb778296c7343d435216b9b3443b144736cca.jpg
@@ -25,3 +25,7 @@ thumbnail: https://thmb.techidaily.com/064bb5c43db4056e998dcb4f406cb778296c7343d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

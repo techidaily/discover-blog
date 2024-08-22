@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils the Power of Smart Content Strategies at Tech Summit 2018
-date: 2024-08-21 12:44:47
-updated: 2024-08-22 12:32:40
+date: 2024-08-21T15:00:47.890Z
+updated: 2024-08-22T15:00:47.890Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce710d3692e68eb1f54ab083aa.jpg
@@ -57,3 +57,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->

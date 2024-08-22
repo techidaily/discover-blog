@@ -1,7 +1,7 @@
 ---
 title: How Governments Are Going Paperless with Digital Identity Verification Solutions
-date: 2024-08-21 19:27:28
-updated: 2024-08-22 11:25:44
+date: 2024-08-21T15:00:46.044Z
+updated: 2024-08-22T15:00:46.044Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f1438428a2471f9b4a0fdcaefb.jpg
@@ -25,3 +25,7 @@ thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f14
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->

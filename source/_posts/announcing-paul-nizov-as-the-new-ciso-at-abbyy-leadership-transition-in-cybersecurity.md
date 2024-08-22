@@ -1,7 +1,7 @@
 ---
 title: "Announcing Paul Nizov as the New CISO at ABBYY: Leadership Transition in Cybersecurity"
-date: 2024-08-19 18:40:20
-updated: 2024-08-22 11:46:56
+date: 2024-08-21T15:00:46.650Z
+updated: 2024-08-22T15:00:46.650Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5cb2e70fe5fc4984663e55071f50818b86ad28c6053861679577418a188e88c7.jpg
@@ -58,3 +58,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->

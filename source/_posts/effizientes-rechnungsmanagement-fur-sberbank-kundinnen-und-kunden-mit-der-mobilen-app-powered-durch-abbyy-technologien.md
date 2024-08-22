@@ -1,7 +1,7 @@
 ---
 title: "Effizientes Rechnungsmanagement Für Sberbank-Kundinnen Und Kunden Mit Der Mobilen App: Powered Durch ABBYY Technologien"
-date: 2024-08-19 14:21:50
-updated: 2024-08-22 12:20:31
+date: 2024-08-21T15:00:45.917Z
+updated: 2024-08-22T15:00:45.917Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/891c1ef62d1f0cae8f261e14a3ae4e9d18efe066afd0af7e2373c813aa6b6f85.jpg
@@ -23,6 +23,9 @@ Finance/Banking | Mobile Capture
 
 Banking | Mobile Capture 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

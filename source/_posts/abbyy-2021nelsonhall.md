@@ -1,7 +1,7 @@
 ---
 title: 「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析
-date: 2024-08-19 13:55:24
-updated: 2024-08-22 12:38:28
+date: 2024-08-21T15:00:45.748Z
+updated: 2024-08-22T15:00:45.748Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a8efd832e4ff850ed2946c105917f658a3e5ec7d74782a26831b6d30a49981c.jpg
@@ -71,3 +71,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

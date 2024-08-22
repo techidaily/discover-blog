@@ -1,7 +1,7 @@
 ---
 title: Robert Youngjohns Named New Board Chairman at ABBYY, Steering Company's Future Growth Initiatives
-date: 2024-08-20 20:25:34
-updated: 2024-08-22 11:25:34
+date: 2024-08-21T15:00:46.564Z
+updated: 2024-08-22T15:00:46.564Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9f379346dab6d9afc35fd26439e264f20b751a6d300caec81d8cb92afef3805.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->

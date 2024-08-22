@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Innovative Solution: Introducing Robotic Employees That Operate Round-the-Clock"
-date: 2024-08-20 13:52:44
-updated: 2024-08-22 10:15:58
+date: 2024-08-21T15:00:47.115Z
+updated: 2024-08-22T15:00:47.115Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a46c11534bd2a1352ab33e591.png
@@ -31,6 +31,9 @@ One of the main advantages of RPA is the relative ease of its implementation. It
 
 A good example is Siemens medical unit - Siemens Healthcare – which recently implemented the RPA system, which collects genetic data of clients for diagnosis of diseases. The solution automatically sets parameters for analysis using more than 90 different settings. The robot extracts the necessary data in 15 mouse clicks, after which the results are entered into Excel to compile various reports. In 2017 Ernst & Young [introduced 700 robots](http://www.google.ru/url?sa=t&rct=j&q=&esrc=s&source=web&cd=4&ved=0ahUKEwjbuvWv6pPaAhWDFSwKHXrICuQQFgg-MAM&url=https%3A%2F%2Fblogs.wsj.com%2Fcio%2F2018%2F03%2F22%2Fno-coffee-breaks-needed-companies-add-software-robots-to-workforce%2F&usg=AOvVaw3y9Aj5gtY8TTiatrlR36BT) that search for information in the knowledge base on personnel issues, collect data from resumes, and even remind employees about meetings and hotel reservations. The company plans to save more than 2 million hours on routine actions within a year and a half.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Important considerations before implementing RPA**
 
 Despite companies' interest in RPA, almost 30% of such projects end in failure. Most of the problems are in scaling the solution, managing and controlling the robots. Here are a few factors to consider for successful implementation of RPA projects.
@@ -43,8 +46,15 @@ Despite companies' interest in RPA, almost 30% of such projects end in failure. 
 
 ![Dmitry Shushkin ABBYY](https://static1.abbyy.com/abbyycommedia/25703/dmitryshushkin-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 Dmitry Shushkin
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

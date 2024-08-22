@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Celebrates a 15%% Increase in Worldwide Earnings for Fiscal Year 2018: Insights From the Latest Financial Report"
-date: 2024-08-19 19:25:37
-updated: 2024-08-22 11:41:13
+date: 2024-08-21T15:00:45.759Z
+updated: 2024-08-22T15:00:45.759Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/473fc1ff0d4e4d5e905e125fcb0f58c3c26b7a5f7017365a21e0c4d6f492b770.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->

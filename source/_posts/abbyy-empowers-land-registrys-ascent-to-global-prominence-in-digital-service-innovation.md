@@ -1,7 +1,7 @@
 ---
 title: ABBYY Empowers Land Registry's Ascent to Global Prominence in Digital Service Innovation
-date: 2024-08-20 11:28:12
-updated: 2024-08-22 12:52:22
+date: 2024-08-21T15:00:46.183Z
+updated: 2024-08-22T15:00:46.183Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e9db891de75640d42280dabbfbbc511c64f55b10c2c6cccea4046ea3f8adbe3.jpg
@@ -100,6 +100,14 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

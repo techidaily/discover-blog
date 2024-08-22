@@ -1,7 +1,7 @@
 ---
 title: Leverage Cookiebot Technology for Enhanced Website Personalization
-date: 2024-08-21 17:40:23
-updated: 2024-08-22 10:45:13
+date: 2024-08-21T15:00:47.755Z
+updated: 2024-08-22T15:00:47.755Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/95524e86f85a82b882072612aa659c4c34bda2a3447788441dbc49006b9ec58d.jpg
@@ -31,10 +31,16 @@ ABBYY powers intelligent automation. We reimagine the way people work and how co
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 ABBYY

@@ -1,7 +1,7 @@
 ---
 title: "Unveiling ABBYY's Latest APAC Strategy: Highlights From the AI Summit in Hong Kong, 2E"
-date: 2024-08-20 11:57:15
-updated: 2024-08-22 10:17:35
+date: 2024-08-21T15:00:48.106Z
+updated: 2024-08-22T15:00:48.106Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d89ad9f3797ef5721bb1984cb133f0b9a82053479b93a4aeb543f338378bede.jpg
@@ -58,3 +58,9 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->

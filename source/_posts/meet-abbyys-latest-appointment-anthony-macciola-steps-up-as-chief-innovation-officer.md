@@ -1,7 +1,7 @@
 ---
 title: "Meet ABBYY's Latest Appointment: Anthony Macciola Steps Up as Chief Innovation Officer"
-date: 2024-08-19 18:20:24
-updated: 2024-08-22 11:18:38
+date: 2024-08-21T15:00:47.777Z
+updated: 2024-08-22T15:00:47.777Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e0810cfd55569744e9fd64a173.jpg
@@ -73,3 +73,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

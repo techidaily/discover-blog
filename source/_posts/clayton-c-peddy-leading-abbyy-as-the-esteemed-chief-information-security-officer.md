@@ -1,7 +1,7 @@
 ---
 title: "Clayton C. Peddy: Leading ABBYY as the Esteemed Chief Information Security Officer"
-date: 2024-08-19 16:58:30
-updated: 2024-08-22 10:54:28
+date: 2024-08-21T15:00:47.608Z
+updated: 2024-08-22T15:00:47.608Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d3919e525f4363ae8c9a19d25cba574e77e7ac0583b121f4d771b95a21f909e.jpg
@@ -39,3 +39,7 @@ Beyond his professional endeavors, Clayton is a published author and sought-afte
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

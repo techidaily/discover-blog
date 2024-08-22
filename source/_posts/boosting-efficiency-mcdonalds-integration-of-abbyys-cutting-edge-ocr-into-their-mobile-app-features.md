@@ -1,7 +1,7 @@
 ---
 title: "Boosting Efficiency: McDonald's Integration of ABBYY's Cutting-Edge OCR Into Their Mobile App Features"
-date: 2024-08-19 23:41:30
-updated: 2024-08-22 11:23:32
+date: 2024-08-21T15:00:47.588Z
+updated: 2024-08-22T15:00:47.588Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81d484489a08d43204f560599.jpg
@@ -55,6 +55,9 @@ During the FIFA World Cup McDonald’s Germany launched a special promotion. McD
 
 Share  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's User Experience & Analytics"
-date: 2024-08-21 18:49:32
-updated: 2024-08-22 11:59:34
+date: 2024-08-21T15:00:47.212Z
+updated: 2024-08-22T15:00:47.212Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8c1f2c53836ffd296ae56332.jpg
@@ -62,6 +62,9 @@ The institution also used process mining as a way to improve processes related t
 
 ![Bruceorcutt 99X99](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Chief Marketing Officer at ABBYY
@@ -82,6 +85,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Are Large Language Models (LLMs) the Future?**](https://tools.techidaily.com/abbyy/products/)
@@ -92,6 +98,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**The Gap Is Closing Between AI Innovation and Time-to-Value**](https://tools.techidaily.com/abbyy/products/)
@@ -102,6 +111,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning**](https://tools.techidaily.com/abbyy/products/)
@@ -112,6 +124,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Process Mining Improves Business Processes and Prevents Cyber Threats**](https://tools.techidaily.com/abbyy/products/)
@@ -132,6 +147,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing**](https://tools.techidaily.com/abbyy/products/)
@@ -142,6 +160,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Is Generative AI Trustworthy?**](https://tools.techidaily.com/abbyy/products/)
@@ -162,6 +183,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Creating an Intelligent Automation Symphony**](https://tools.techidaily.com/abbyy/products/)
@@ -192,6 +216,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them**](https://tools.techidaily.com/abbyy/products/)

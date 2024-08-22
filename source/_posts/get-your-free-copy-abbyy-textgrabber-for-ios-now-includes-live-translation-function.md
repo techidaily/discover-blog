@@ -1,7 +1,7 @@
 ---
 title: "Get Your Free Copy: ABBYY TextGrabber for iOS Now Includes Live Translation Function"
-date: 2024-08-19 10:48:46
-updated: 2024-08-22 11:36:13
+date: 2024-08-21T15:00:47.341Z
+updated: 2024-08-22T15:00:47.341Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bca79052c5cd9d97263eb9f9d9f77145f2fe6968554def245326bd7e9d126f27.jpg
@@ -84,3 +84,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

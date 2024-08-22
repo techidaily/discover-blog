@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Site's Performance Using the Powerful Tools of Cookiebot
-date: 2024-08-20 22:14:20
-updated: 2024-08-22 10:49:19
+date: 2024-08-21T15:00:46.429Z
+updated: 2024-08-22T15:00:46.429Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -39,6 +39,9 @@ Since then, my first two years with the company have lived up to my expectations
 
 ![](https://static1.abbyy.com/abbyycommedia/36891/sofia-tarasova-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### What does a typical day look like for you at ABBYY?
 
 One of the things I love about ABBYY is having a good work-life balance and flexibility in my work schedule. I get up early, so sometimes start my working day at 7am. It’s always a pleasure to start the day quietly sorting through emails while drinking a cup of fresh home-brewed coffee!
@@ -49,6 +52,9 @@ Usually, I go for a workout a few times a week at lunchtime, which makes me 2x m
 
 My job and the variety of experiences this role gives me is what really keeps me motivated. When you work with great team members, you have the opportunity every day to learn new things and face different situations. It develops you not only professionally, but in all aspects of life.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### What was your previous experience before ABBYY?
 
 My whole career journey up to ABBYY has been as an IT Recruiter and HR manager of IT teams.
@@ -57,16 +63,25 @@ I had an opportunity to work with leading local and international FinTech compan
 
 ![](https://static1.abbyy.com/abbyycommedia/36890/sofia-tarasova-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Your top advice to someone joining ABBYY in your function?
 
 The People team is about people—in every aspect. It’s about the ability to listen to their needs, their concerns, assisting them in their personal development and professional growth. At the same time, it’s about aligning those aspirations with the goals and strategy of the company.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Since it is International Women’s Month, we also wanted to ask you: What do you think are the most important skills for a woman to have in order to succeed in the tech industry?
 
 In my experience, the tech industry has become much more advanced in terms of the inclusion of women. Women in the tech industry and in any other business, in my opinion, should actively use their strong points, such as being able to motivate a team effectively, create an environment that encourages the team to succeed, build trusting relationships with colleagues that help in the partnership.
 
 ![](https://static1.abbyy.com/abbyycommedia/36895/sofia-tarasova-6.png?width=850&height=567)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How do you spend your free time?
 
 Most of my free time is taken up at the gym, and six months ago I took up power lifting.
@@ -77,6 +92,9 @@ Also, I really like walking. If you look at my Apple Watch, you will never see a
 
 Once upon a time, I promised my mother that when I grew up, and when my parents are elderly, I would build them a house somewhere quiet and cozy with huge floor-length windows. But my wish is not for that house to suddenly appear. It is about me being able to make it happen through my own success.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### Name any inspirational book/movie/music you have recently discovered or are enjoying at the moment
 
 Recently, I discovered Anime. Throughout my life I had a rather preconceived opinion about this genre, but the post-apocalyptic manga "Shingeki no Kyojin" (Attack of the Titans) changed my mind.
@@ -93,6 +111,9 @@ So, if you're a skeptic of Anime like I was, I recommend watching it. I promise 
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static4.abbyy.com/abbyycommedia/37757/larysa-lototska.png) 

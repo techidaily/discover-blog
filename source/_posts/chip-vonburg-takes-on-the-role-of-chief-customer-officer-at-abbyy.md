@@ -1,7 +1,7 @@
 ---
 title: Chip VonBurg Takes on the Role of Chief Customer Officer at ABBYY
-date: 2024-08-19 15:32:39
-updated: 2024-08-22 11:29:43
+date: 2024-08-21T15:00:45.637Z
+updated: 2024-08-22T15:00:45.637Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd0c150ddc024f76a0e2e4518.jpg
@@ -37,3 +37,7 @@ VonBurg’s deep knowledge in AI, machine learning and the systems driving organ
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

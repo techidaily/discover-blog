@@ -1,7 +1,7 @@
 ---
 title: ABBYY Enhances User Satisfaction with Innovative New Mobile Capture SDK
-date: 2024-08-19 17:29:57
-updated: 2024-08-22 10:23:33
+date: 2024-08-21T15:00:47.089Z
+updated: 2024-08-22T15:00:47.089Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/76da0ed68bc2a93de3bddfb794fb58ce57d0ed84b978982943f32b5ddbb0e182.jpg
@@ -81,3 +81,12 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->

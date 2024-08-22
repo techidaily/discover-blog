@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Insights: Enhance Your Site's SEO Effortlessly"
-date: 2024-08-20 20:35:14
-updated: 2024-08-22 11:11:46
+date: 2024-08-21T15:00:45.660Z
+updated: 2024-08-22T15:00:45.660Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80dbe73edcb9caed2b21ead0e410557adcd12285542419110d9449a4ec8ee940.jpg
@@ -52,6 +52,9 @@ Um zu verstehen, was IDP ist und wie sie Unternehmen nützt, muss man wissen, wa
 ## Die Entwicklung der IDP  
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-de.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Wie funktioniert die intelligente Dokumentenverarbeitung? 
 
 IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten im umgebenden Text zur Entitätsextraktion, mit der automatisch und mit hoher Genauigkeit festgestellt wird, auf welche Entitäten verwiesen wird. Bezeichnet das Wort „Jaguar“ beispielsweise eine Großkatze oder ein Auto? Oder bezeichnet das Wort „Sue“ in einem englischen Text eine Person oder eine rechtliche Klage? Mittels NLP identifiziert und extrahiert IDP unstrukturierte Daten mit bisher unerreichter Präzision, wie ein menschliches Gehirn, das schnell auf veränderte Eingaben reagiert und das bestmögliche Ergebnis liefert. 
@@ -60,6 +63,9 @@ IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten i
 
 [FastML](https://tools.techidaily.com/abbyy/products/), ein neues kundenseitiges selbstlernendes Tool, verwendet visuelle und textuelle Extraktionsmethoden, was eine noch genauere Datenextraktion ermöglicht. Unternehmen, die sich einen Wettbewerbsvorteil verschaffen wollen, können die schwerfällige und inhaltsorientierte Arbeitslast auf intelligente Dokumentenverarbeitung und intelligente Automatisierungslösungen verlagern, damit ihre Mitarbeitenden Zeit haben, sich mit lohnenderen Aufgaben zu beschäftigen und bessere Kundenerlebnisse zu schaffen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Was sind die Vorteile der intelligenten Dokumentenverarbeitung? 
 
 In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizierten Ressourcen in kürzerer Zeit mehr zu leisten. Zugleich konzentrieren sich mehr Unternehmen auf die Verbesserung des Kunden- und Mitarbeitererlebnisses, um so Umsatz, Gewinnspanne und Kundenbindung zu steigern. [Intelligente Dokumentenverarbeitung (IDP)](https://www.abbyy.com/de/vantage/?itm%5Fsource=coprblog-de "Intelligent document processing (IDP)") kann in beiderlei Hinsicht erhebliche Vorteile bringen. Durch die Nutzung von Document-Skills, die der Art und Weise, wie Menschen Inhalte verstehen und handhaben, sehr nahe kommen, bietet IDP die folgenden Vorteile:
@@ -71,10 +77,16 @@ In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizie
 
 **[Verwandter Inhalt: Bericht zum Stand der intelligenten Automatisierung: Einflussfaktoren und Probleme der Neukundenaufnahme](https://tools.techidaily.com/abbyy/products/)**
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Process Mining ins Spiel.
 
 **![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/process-intelligence-how-it-works-de.jpg)**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 [**Process Mining**](https://tools.techidaily.com/abbyy/products/) **hilft Unternehmen, ihre Prozesse zu analysieren, um intelligente Entscheidungen darüber zu treffen, wo die Dokumentenverarbeitung automatisiert werden soll. Es extrahiert Zeitstempeldaten aus Informationssystemen und wendet KI an, um ein visuelles Modell des Prozesses von Anfang bis Ende zu erstellen, einschließlich aller Abweichungen.** Die Prozessverantwortlichen erhalten einen klaren Überblick darüber, wie die Inhalte durch den Prozess fließen, und erhalten die nötigen Einblicke, um Ineffizienzen zu erkennen und zu beseitigen, die den Erfolg der IDP-Implementierung beeinträchtigen könnten.
 
 Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](https://tools.techidaily.com/abbyy/products/) mit IDP zusammen, um Unternehmen zu befähigen:
@@ -125,6 +137,9 @@ Künstliche Intelligenz ist in aller Munde, und die Technologielandschaft entwic
 * **3\. Suchen Sie nach einer Lösung, die Ihren Anforderungen entspricht.**  
  Sobald Sie Ihre spezifischen Bedürfnisse ermittelt haben, wird es einfacher sein, eine Lösung zu finden, die Ihren Anforderungen entspricht. So können beispielsweise Daten in verschiedenen Sprachen vorliegen, die vor der Analyse oder Weiterleitung an ein anderes System übersetzt werden müssen. Möglicherweise gibt es strenge Datenschutzrichtlinien für die Verwendung der Daten, sodass Authentifizierungs- und Validierungsfunktionen in Ihrer IDP-Softwareplattform oberste Priorität haben werden. Auch die Klassifizierung und Integration von Daten ist ein wichtiger Schritt bei der automatischen Übernahme in bestehende Arbeitsabläufe. IDP kann Dokumente in vordefinierte Klassen einteilen, um die Arbeitslast zu organisieren und zu priorisieren, z. B. durch die Sortierung von Bewerbungen nach Datum oder von E-Mails in verschiedene Ordner, je nach ihrem Inhalt.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Die Zukunft der Dokumentenverarbeitung 
 
 Intelligente Dokumentenverarbeitung bietet Unternehmen eine Vielzahl von Vorteilen – wenn sie strategisch als wesentlicher Bestandteil des Kundenerlebnisses implementiert wird und die Prozesse dafür ausgelegt sind. Wenn zunächst ein Process Mining durchgeführt und eine solide Grundlage für die Implementierung geschaffen wird, können Unternehmen die Vorteile der IDP voll ausschöpfen, wie Kostensenkungen und Effizienzsteigerungen, die Einhaltung gesetzlicher Vorschriften sowie die Verbesserung des Erlebnisses von Mitarbeitenden und Kundschaft. 
@@ -175,6 +190,9 @@ _Anmerkung der Redaktion: Dieser Blogbeitrag wurde ursprünglich am 8\. Dezember
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy

@@ -1,7 +1,7 @@
 ---
 title: "Understanding Outbound IP Addresses: Insights with ABBYY Solutions"
-date: 2024-08-20 11:52:10
-updated: 2024-08-22 12:54:39
+date: 2024-08-21T15:00:48.082Z
+updated: 2024-08-22T15:00:48.082Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8834da223e912daed0885bd1.jpg
@@ -43,3 +43,7 @@ Please use the below IP addresses to configure firewalls on the systems that sho
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->

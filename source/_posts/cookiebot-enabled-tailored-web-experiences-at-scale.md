@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Tailored Web Experiences at Scale"
-date: 2024-08-19 13:45:51
-updated: 2024-08-22 12:41:45
+date: 2024-08-21T15:00:46.737Z
+updated: 2024-08-22T15:00:46.737Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f762a62cb8a1104c2694e715bcccff8df3eff7e91b571c6dca277d98979ab8b4.jpg
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/f762a62cb8a1104c2694e715bcccff8df3eff7e91
 
 Automate the processing of lending documents under the CARES Act Paycheck Protection Program.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture enables banks to process inbound loan applications and supporting documentation related to the Paycheck Protection Program (PPP)
 
 Banks are seeing a massive influx of PPP loan applications, which requires them to make rapid lending decisions and respond to this unprecedented volume of request from small businesses.

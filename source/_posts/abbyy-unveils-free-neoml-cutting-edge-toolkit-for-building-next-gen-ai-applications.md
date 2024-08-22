@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Unveils Free NeoML: Cutting-Edge Toolkit for Building Next-Gen AI Applications"
-date: 2024-08-19 12:28:13
-updated: 2024-08-22 12:30:26
+date: 2024-08-21T15:00:46.629Z
+updated: 2024-08-22T15:00:46.629Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94f8101d81239e6d6c9b37987bd7d1eee4d5fe65d7ecceaaa89118b497471a4a.jpg
@@ -76,3 +76,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

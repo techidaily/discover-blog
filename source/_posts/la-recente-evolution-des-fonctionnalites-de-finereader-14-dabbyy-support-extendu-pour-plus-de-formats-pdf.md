@@ -1,7 +1,7 @@
 ---
 title: "La Récente Évolution Des Fonctionnalités De FineReader 14 D'ABBYY: Support Extendu Pour Plus De Formats PDF"
-date: 2024-08-21 12:33:15
-updated: 2024-08-22 11:45:54
+date: 2024-08-21T15:00:46.070Z
+updated: 2024-08-22T15:00:46.070Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
@@ -80,3 +80,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

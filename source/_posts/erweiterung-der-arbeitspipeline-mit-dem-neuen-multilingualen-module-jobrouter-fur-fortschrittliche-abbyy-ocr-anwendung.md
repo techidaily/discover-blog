@@ -1,7 +1,7 @@
 ---
 title: Erweiterung Der Arbeitspipeline Mit Dem Neuen Multilingualen Module JobRouter Für Fortschrittliche ABBYY OCR Anwendung
-date: 2024-08-21 12:58:28
-updated: 2024-08-22 10:40:49
+date: 2024-08-21T15:00:46.807Z
+updated: 2024-08-22T15:00:46.807Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511d16fa18d7a28833e2a6d9c5.jpg
@@ -23,6 +23,9 @@ Services / IT solutions | Document Processing
 
 Dienstleistungen und IT-Lösungen | Dokumentenverarbeitung 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

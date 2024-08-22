@@ -1,7 +1,7 @@
 ---
 title: Have Authentic Client-Focused Strategies Established Dominance Within the Realm of Insurance Claims?
-date: 2024-08-19 16:47:55
-updated: 2024-08-22 11:23:26
+date: 2024-08-21T15:00:47.376Z
+updated: 2024-08-22T15:00:47.376Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/916392205a65f22e795dae3506862f66749385a09e794f561f2fddd69b31c591.png
@@ -21,18 +21,32 @@ TIN and ABBYY surveyed the UK claims community in February 2021 to identify the 
 
 This report summarizes the outcomes of the survey and the issues raised during the keynote session at Virtual Digital Claims as well as some of the following sessions. The keynote session featured **Ian Thompson**, the Group Claims Director at **Zurich**, and **Eileen Potter**, Insurance Lead at **ABBYY** and was facilitated by **Jeremy Burgess** of **TIN**.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 There has been an unmistakable shift away from the business case for claims transformation being made around operational efficiency and cost savings. The main driver has become enhancing the customer experience (primarily, but not exclusively, digital): when asked, 57% of respondents chose “rethinking claims customer journeys” as the key driver. The conversation has changed from paying lip service to customer centricity and tactically tweaking the claims experience to fundamentally rethinking the claims experience in a much more strategic way.
 
 This has led insurers to look again at the ‘Holy Trinity of Transformation’ (People, Process and Technology) through the lens of a genuine customer centricity driven by the fact that in a post COVID world customer experience is set to be the key differentiator and driver of competitive advantage in claims.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read the report](https://digital.abbyy.com/hubfs/content/report-insurance-TIN-digital-claims-en.pdf "Read the report") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

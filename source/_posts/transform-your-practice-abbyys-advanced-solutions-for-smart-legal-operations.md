@@ -1,7 +1,7 @@
 ---
 title: "Transform Your Practice: ABBYY's Advanced Solutions for Smart Legal Operations"
-date: 2024-08-19 14:13:12
-updated: 2024-08-22 10:16:20
+date: 2024-08-21T15:00:47.868Z
+updated: 2024-08-22T15:00:47.868Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/759e3775dd226670ae28d5af19c1defd92ebed9270d940f9ca545069c585fcb0.jpg
@@ -77,3 +77,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->

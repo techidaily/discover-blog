@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture®によりインボイス処理時間が90%%短縮!企業デジタル変革のコア技術
-date: 2024-08-20 17:40:10
-updated: 2024-08-22 12:37:51
+date: 2024-08-21T15:00:47.096Z
+updated: 2024-08-22T15:00:47.096Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3435ed54de8a47266623e22c7fb2a2e96dbea38f3e30be83e17069ff0556f42f.png
@@ -141,6 +141,9 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

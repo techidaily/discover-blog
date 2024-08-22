@@ -1,7 +1,7 @@
 ---
 title: "Investissement Stratégique Avec ABBYY Chez Marlin Equity Partners: Une Approche Révolutionnaire"
-date: 2024-08-19 11:22:50
-updated: 2024-08-22 12:21:16
+date: 2024-08-21T15:00:48.066Z
+updated: 2024-08-22T15:00:48.066Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9cc6b9e127e8620a8c8c8710454e9c29c9fd332bb80288c9b2f1c26ecf61a151.jpg
@@ -56,3 +56,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

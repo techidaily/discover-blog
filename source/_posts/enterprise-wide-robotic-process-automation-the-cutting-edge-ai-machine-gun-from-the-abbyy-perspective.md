@@ -1,7 +1,7 @@
 ---
 title: "Enterprise-Wide Robotic Process Automation: The Cutting-Edge 'AI Machine Gun' From the ABBYY Perspective"
-date: 2024-08-20 15:14:15
-updated: 2024-08-22 11:20:40
+date: 2024-08-21T15:00:45.965Z
+updated: 2024-08-22T15:00:45.965Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5bfb2b2f01975a3eebb8a0b131dcc5bf0873594ba112a1d8a6d8b08b27b2cbba.jpg
@@ -34,6 +34,9 @@ There simply is no reason for either of those activities to remain in the Mediev
 
 ## How does a Process Intelligence Platform support RPA?
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Pre-RPA Implementation
 
 Firstly, [Process Intelligence](https://tools.techidaily.com/abbyy/products/) should be used during the pre-implementation analysis of existing processes to highlight the ideal candidates for an RPA both in terms of process efficiency goals and to define realistic Return on Investment expectations.
@@ -42,6 +45,9 @@ This increased Process IQ delivers 100% end to end process visibility through th
 
 Essentially a Process Intelligence Platform should act as your RPA roadmap, identifying, prioritizing and justifying the right processes to attack — or as one of our customers calls it — “Evidence Based RPA Planning”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### Post RPA-implementation
 
 We all need to remember that whilst the discovery and analysis components of a Process Intelligence deployment can provide great value in a process assessment, it is hardly the final destination! The ultimate goal is to improve them, whether this be achieved through staff training, process re-engineering or through automation. This is the area where a “True” Process Intelligence Platform can deliver unmatched functionality.
@@ -60,8 +66,14 @@ Don’t get left fighting with swords!
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 Joe Rayfield
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

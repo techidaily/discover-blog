@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Strategic Guidance: Natasha Mann as a Key Board Member"
-date: 2024-08-20 13:30:23
-updated: 2024-08-22 11:36:42
+date: 2024-08-21T15:00:45.805Z
+updated: 2024-08-22T15:00:45.805Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ccfed125e4471bfeef796f7e1d53a32e1cb3d7aef2eb6fc1425b4243cea5954.jpg
@@ -37,3 +37,7 @@ Natasha is a Principal at Marlin Equity Partners where her primary responsibilit
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

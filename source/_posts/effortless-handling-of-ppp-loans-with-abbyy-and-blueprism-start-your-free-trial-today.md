@@ -1,7 +1,7 @@
 ---
 title: Effortless Handling of PPP Loans with ABBYY and BluePrism - Start Your Free Trial Today
-date: 2024-08-21 18:30:56
-updated: 2024-08-22 12:18:35
+date: 2024-08-21T15:00:46.760Z
+updated: 2024-08-22T15:00:46.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eab7c14eabafe1a185466727235bc20b8846ab28dbbd2f320ca581d507972f83.jpg
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/eab7c14eabafe1a185466727235bc20b8846ab28d
 
 Automate the processing of lending documents under the CARES Act Paycheck Protection Program.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture enables banks to process inbound loan applications and supporting documentation related to the Paycheck Protection Program (PPP)
 
 Banks are seeing a massive influx of PPP loan applications, which requires them to make rapid lending decisions and respond to this unprecedented volume of request from small businesses.

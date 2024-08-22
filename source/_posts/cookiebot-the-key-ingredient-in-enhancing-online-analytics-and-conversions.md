@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Key Ingredient in Enhancing Online Analytics and Conversions"
-date: 2024-08-20 22:39:12
-updated: 2024-08-22 12:49:51
+date: 2024-08-21T15:00:46.278Z
+updated: 2024-08-22T15:00:46.278Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b81e2111a8c2aa2cbab431fe7.jpg
@@ -27,6 +27,9 @@ The University of Southampton Library supports a community of approximately 35,0
 
 ABBYY FineReader, a software product designed for ad-hoc scanning and digitisation, had been used by the Library for a number of years to digitise small numbers of pages, and occasionally full books, with the addition of text recognition or OCR (optical character recognition). The Library quickly realised however that in order to automate the OCR process with a high throughput and achieve their goal of digitising half a million pages per year, they would need a more robust product capable of automatically processing large volumes of documents. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Solution
 
 In order to find a solution to process printed documents into searchable formats, such as PDF and PDF/A for digitising archives or records creation, the Library evaluated various options on the market. They examined the following criteria across a number of products: Speed and quality of OCR, range of output formats and compressions, and API/workflow integration possibility. After looking at a number of products the Library selected ABBYY Recognition Server as a best-fit solution.
@@ -41,6 +44,9 @@ Digitisation of 18th century Parliamentary Papers: Coverage includes the Journal
 
 Digitisation of 19th century pamphlets: Over 23,000 19th century pamphlets from UK research libraries that cover the socio-political and economic landscape in Britain were digitised by the LDU and converted into searchable PDFs. Project details and catalogue entry is available at: [www.britishpamphlets.org.uk](http://www.britishpamphlets.org.uk/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Other in-house projects include:
 
 Digitisation of Doctoral Theses: Scanned copies of 20,000 University of Southampton awarded theses were converted to searchable PDFs and are now being made available through the university’s institutional research repository, Eprints Soton. Eprints Soton contains electronic copies of research output, including journal articles, book chapters, conference papers and theses. It also includes unpublished manuscripts and papers. The full text of many of these items is freely available to be used in accordance with copyright and end-user permissions. [eprints.soton.ac.uk](http://eprints.soton.ac.uk/)
@@ -51,6 +57,9 @@ Digitisation of Course Texts: The Library converts printed items into searchable
 
 The Richard Rutt Collection: A collection of 19th century knitting books from the Winchester School of Art Reference Library have been digitised and made available as searchable PDFs via the web. [www.southampton.ac.uk/library/](http://www.southampton.ac.uk/library/) 
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Conclusion
 
 A powerful and accurate OCR is an integral component of the Library Digitisation Unit’s activities. Thanks to the increased throughput offered by ABBYY Recognition Server, Library staff are freed from the tedious work of manual OCR and millions of pages of documents from the University of Southampton’s collection are available online in digital formats to its students and to the wider world.
@@ -65,6 +74,9 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu).
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

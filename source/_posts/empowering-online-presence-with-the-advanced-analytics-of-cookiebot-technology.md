@@ -1,7 +1,7 @@
 ---
 title: Empowering Online Presence with the Advanced Analytics of Cookiebot Technology
-date: 2024-08-21 21:14:59
-updated: 2024-08-22 12:38:28
+date: 2024-08-21T15:00:47.718Z
+updated: 2024-08-22T15:00:47.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2d8163ca6c49196e0614246e.jpg
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
 
 Bringing the power of Process Intelligence to the Alteryx Analytic Process Automation (APA) Platform™.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Timeline connector for Alteryx
 
 The ABBYY Connector for Alteryx delivers the integration between the ABBYY Timeline platform and the Alteryx APA PlatformTM. Alteryx data sources and assets can be accessed and leveraged by ABBYY Timeline to deliver insight into the data-driven processes resulting from advanced process analytics.

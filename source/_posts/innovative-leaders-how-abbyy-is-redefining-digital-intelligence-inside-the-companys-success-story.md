@@ -1,7 +1,7 @@
 ---
 title: "Innovative Leaders: How ABBYY Is Redefining Digital Intelligence - Inside the Company's Success Story"
-date: 2024-08-19 23:43:33
-updated: 2024-08-22 11:35:16
+date: 2024-08-21T15:00:47.382Z
+updated: 2024-08-22T15:00:47.382Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8ac9ff5b071dc373f5d27eae7.jpg
@@ -69,3 +69,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

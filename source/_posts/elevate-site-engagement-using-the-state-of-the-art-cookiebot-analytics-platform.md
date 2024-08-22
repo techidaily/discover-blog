@@ -1,7 +1,7 @@
 ---
 title: Elevate Site Engagement Using the State-of-the-Art Cookiebot Analytics Platform
-date: 2024-08-19 18:59:43
-updated: 2024-08-22 11:51:13
+date: 2024-08-21T15:00:46.771Z
+updated: 2024-08-22T15:00:46.771Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54f28e65a2bdb8f8ae88e8ace.jpg
@@ -95,6 +95,9 @@ Movavi Clips is available for [Android](https://play.google.com/store/apps/detai
 
 By the way, you obviously need to record some videos before you can start editing them! 🙂 [Here](https://tools.techidaily.com/abbyy/products/) you can find some tips on how to shoot videos like a pro.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Creating Your Own Card with Business Card Reader for iOS**
 
 Collecting your business partners’ contacts is an important task, but it’s a two-way street: they need your contact details as well. We would advise you to take two minutes of your time to create your own business card with [Business Card Reader](https://go.onelink.me/LuYz/ca107d7), which you would then be able to share in one tap.
@@ -105,6 +108,10 @@ In the main menu, open **Settings** by tapping the gear icon in the top right co
 
 ![abbyy business card reader ios](https://static1.abbyy.com/abbyycommedia/28720/abbyy1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 Fill out all the necessary fields. If you want to place your company’s logo on the card as well, take a photo of a colleague’s card or on any other document bearing your company’s logo. Tap the magic wand icon at the bottom of the screen, and BCR will crop away everything except the company logo.
 
 ![abbyy business card reader create a business card](https://static1.abbyy.com/abbyycommedia/26492/abbyy2.png)
@@ -115,6 +122,12 @@ Don’t forget to add your Facebook and LinkedIn accounts. Tap the checkmark in 
 
 ![business card on a smartphone](https://static1.abbyy.com/abbyycommedia/26806/abbyy4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the Week: Pillow Sleep Tracker**
 
 If you are suffering from insomnia even after a long and tiring day of work, there might be an endless list of causes: stress, having looked at a flickering monitor all day, a constant stream of phone calls at work, and so on.
@@ -125,10 +138,16 @@ It has a wide range of features, including the ability to synchronize with the i
 
 ![healthy sleeping](https://static1.abbyy.com/abbyycommedia/26807/sleep1.png) ![pillow sleeping tracker](https://static1.abbyy.com/abbyycommedia/26808/sleep2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 When you want to stay up a bit longer to watch a couple of more episodes of your favorite series, just “tell” the app about that temporary change in your go-to-bed and wake-up times.
 
 ![monitoring sleep with iphone](https://static1.abbyy.com/abbyycommedia/26809/sleep3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 The app also supports Apple Watch – with it, your sleep records become even more precise.
 
 You can download a iOS version of the app [here.](https://itunes.apple.com/app/id878691772)

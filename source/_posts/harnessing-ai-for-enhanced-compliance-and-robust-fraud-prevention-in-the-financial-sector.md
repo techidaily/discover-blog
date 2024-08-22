@@ -1,7 +1,7 @@
 ---
 title: Harnessing AI for Enhanced Compliance and Robust Fraud Prevention in the Financial Sector
-date: 2024-08-21 20:41:44
-updated: 2024-08-22 12:45:56
+date: 2024-08-21T15:00:45.710Z
+updated: 2024-08-22T15:00:45.710Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -43,6 +43,9 @@ SOLUTION BRIEF
 
 [Download now](https://static4.abbyy.com/abbyycommedia/36267/solutionbrief-financialservices-identity-proofing-and-affirmation-secure-onboarding-en.pdf "Download now") 
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Preventing sophisticated crimes requires sophisticated measures
 
 How can financial institutions counteract this constant flow of attacks? Manual oversight can be helpful but is inherently limited by a human employees’ inability to keep pace with the volume and speed of transactions on a 24/7 basis, combined with inadequate controls over transaction monitoring and reporting.
@@ -53,6 +56,9 @@ Fortunately, today’s artificial-intelligence-driven technologies are providing
 
 To address the dual challenge of complying with KYC/AML/CFT regulations and forestalling criminal activities that may fall outside compliance requirements, financial institutions need a multi-front battle plan that addresses people, processes, and documents.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### How AI and machine learning facilitate document chain of custody
 
 Using the latest artificial intelligence (AI) and machine learning (ML) technologies, banks are provided with key capabilities in document chain of custody:
@@ -71,6 +77,9 @@ Any gaps in this chain could result not only in KYC compliance violations, but a
 
 While most banks may have a good idea of how these processes should execute, the gaps between theory and practice may be broader than they think—and those gaps could present opportunities for fraud or data theft. By automatically mapping process execution, banks can track the lifecycle of customer and transaction data as it moves through and between processes with their essential documents and, if required, provide accurate documentation of the chain of custody.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Forecasting human-in-the-loop to remain vital to AI-solution success
 
 AI-driven solutions can automatically review and monitor hundreds of processes and thousands of documents, quickly and accurately, to flag signs of possible criminal activity. AI will not replace human compliance and fraud prevention experts; on the contrary, it can be a game-changing asset that frees employees from routine oversight tasks and enables them to focus on more complex problems.
@@ -123,6 +132,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Process Mining Improves Business Processes and Prevents Cyber Threats**](https://tools.techidaily.com/abbyy/products/)
@@ -133,6 +145,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific**](https://tools.techidaily.com/abbyy/products/)
@@ -153,6 +168,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing**](https://tools.techidaily.com/abbyy/products/)
@@ -183,6 +201,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Creating an Intelligent Automation Symphony**](https://tools.techidaily.com/abbyy/products/)
@@ -203,6 +224,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Approach Automation Step by Step**](https://tools.techidaily.com/abbyy/products/)
@@ -213,6 +237,9 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them**](https://tools.techidaily.com/abbyy/products/)

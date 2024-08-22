@@ -1,7 +1,7 @@
 ---
 title: Navigating the World of Robotics Automation with ABBYY Experts
-date: 2024-08-21 17:24:51
-updated: 2024-08-22 11:46:11
+date: 2024-08-21T15:00:46.900Z
+updated: 2024-08-22T15:00:46.900Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209e0df21f919437f2401fbd1a.jpg
@@ -49,6 +49,9 @@ This blog is an abridged version of an article (The Impact of RPA on GDPR) that 
 
 Anthony Macciola
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

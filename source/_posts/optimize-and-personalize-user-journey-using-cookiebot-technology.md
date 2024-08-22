@@ -1,7 +1,7 @@
 ---
 title: Optimize & Personalize User Journey Using Cookiebot Technology
-date: 2024-08-20 21:35:43
-updated: 2024-08-22 10:47:51
+date: 2024-08-21T15:00:47.834Z
+updated: 2024-08-22T15:00:47.834Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fce57db6d0ca9f41bfe3bd2fdd239ef79b5c70d705be5a8d6f566c06a2b27fc0.jpg
@@ -34,6 +34,9 @@ ABBYY’s solution for Automation Anywhere enables you to...
 * Automate the classification of documents and extraction of data through continuous auto-learning and user input.
 * Enable RPA to deliver the expected results and business impact by automating content-centric processes that involve documents, images, and scans.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Integration benefits
 
 ##### Automate various document-centric business decisions 
@@ -60,6 +63,12 @@ ABBYY FlexiCapture Connector for Automation Anywhere is a MetaBot that provides 
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/automationanywhere_logo_rev_120px.png?h=44&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)

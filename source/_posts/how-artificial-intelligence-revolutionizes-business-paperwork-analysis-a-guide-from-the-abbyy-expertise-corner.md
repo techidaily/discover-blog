@@ -1,7 +1,7 @@
 ---
 title: How Artificial Intelligence Revolutionizes Business Paperwork Analysis - A Guide From the ABBYY Expertise Corner
-date: 2024-08-21 14:16:22
-updated: 2024-08-22 11:37:21
+date: 2024-08-21T15:00:46.491Z
+updated: 2024-08-22T15:00:46.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3c841d342bad4a1013bf8d86.jpg
@@ -23,6 +23,9 @@ The rapid advancement in cognitive technologies is significantly impacting the w
 
 Macciola believes that the on-going onslaught of AI and its integration in business will not remove the need for enterprises to have knowledge workers: “With all AI solutions, people with more advanced training are needed who understand the company’s core values in addition to the technology processes.” This is because people have the characteristics that AI solutions need, such as empathy, creativity, judgement and critical thinking skills. Therefore, the skilled worker will always be vital to the success of the organization.”
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What do customers want?
 
 The most appropriate mind-set for organizations, Macciola says, should be focusing on what customers are trying to do and adjusting to that. “Customers want a system to watch and learn what their knowledge workers are doing as part of their daily routines. They want a system that can then start recommending courses of action based on learned behavior. They also want the knowledge worker to be able to direct the system to automate from past recommendations.”
@@ -31,6 +34,9 @@ For Macciola, these insights point to machine learning and RPA. “RPA is likely
 
 “Consequently, once organizations have automated various tasks by adding a level of learned intelligence, they’re going to want to monitor and understand the impact those efforts are having on their organization. This will result in businesses and their workforces going through a material change over the next three to five years.”
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Adjusting to Disruption
 
 Macciola believes organizations must adjust for AI to work successfully and this will demand a significant shift in skills. The priority will be having workers who are open to embracing new technology.
@@ -39,6 +45,9 @@ The general workplace will result in more tasks being addressed by a system of r
 
 “Another skills shift will be that the workers’ role will shrink from a span of control and expertise standpoint. As the software gets smarter, its dependency on the workforce shrinks and the knowledge workers will become more narrowly focused from a role and responsibility standpoint.”
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Looking ahead
 
 Macciola predicts industry will see significant change in three areas largely driven by the convergence of Robotic Process Automation and AI. RPA software is a powerful tool to perform manual, time-consuming, rules-based office tasks more efficiently by reducing cycle time and at lower costs than other automation solutions.
@@ -53,6 +62,9 @@ Macciola predicts industry will see significant change in three areas largely dr
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

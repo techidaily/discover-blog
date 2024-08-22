@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Experience Tailored Browsing with Advanced Tracking"
-date: 2024-08-19 17:46:49
-updated: 2024-08-22 12:16:27
+date: 2024-08-21T15:00:46.754Z
+updated: 2024-08-22T15:00:46.754Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13161d4780beb13fc4b02e6aea02c1375d88cd123ec37a972f3b6c973af210c4.jpg
@@ -25,6 +25,12 @@ Senior Analyst and Operations Officer at **NelsonHall**
 
 ![Bruce Orcut 198X198](https://static2.abbyy.com/abbyycommedia/35353/bruce-orcut-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Bruce Orcutt
 
 Senior Vice President of Product Marketing at **ABBYY**
@@ -35,6 +41,9 @@ In 2021, analyst firm NelsonHall estimated the global Process Discovery & Mining
 
 [](https://www.youtube.com/watch?v=Tb6M81U8rcQ) 
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch it now!
 
 ABBYY is proud to have been named a leader in the NelsonHall NEAT Evaluation for the second year. As one of the leading research and analysis firms on achieving business transformation, NelsonHall share their vision for the future in this webinar. Join Senior Analyst Mike Smart and ABBYY’s Senior Vice President of Product Marketing Bruce Orcutt, as they discuss:
@@ -52,12 +61,21 @@ This is a great opportunity to hear from some of the top minds on process improv
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![20 Can You Dig It 643X363](https://static4.abbyy.com/abbyycommedia/35356/20-can-you-dig-it-643x363.jpg)](https://www.youtube.com/watch?v=k-LkEY7mMkg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

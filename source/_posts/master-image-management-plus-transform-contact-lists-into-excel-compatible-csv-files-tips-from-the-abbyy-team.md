@@ -1,7 +1,7 @@
 ---
 title: Master Image Management + Transform Contact Lists Into Excel-Compatible CSV Files - Tips From the ABBYY Team
-date: 2024-08-21 11:29:54
-updated: 2024-08-22 12:59:45
+date: 2024-08-21T15:00:46.876Z
+updated: 2024-08-22T15:00:46.876Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13a2ed7d3d473fc4b094f952faefa5141a38181bbb0354fc87e696c7a5f69650.png
@@ -81,6 +81,9 @@ Select photos or videos that you want to share with someone, say, with your fami
 
 The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, videos or music directly to their TVs.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Opening CSV Files in Excel**
 
 [Business Card Reader](http://qrs.ly/iw4uqj5) can export data from business cards to a [CSV](https://en.wikipedia.org/wiki/Comma-separated%5Fvalues) file, which you can then open in Microsoft Excel. All the contact information will be neatly arranged in columns for easy access. To export your business card data to Microsoft Excel, complete the following steps:
@@ -96,16 +99,26 @@ The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, 
 
 Please don’t be put off by so many steps. These are just consecutive steps of the wizard, and they are quite logical. When you’re done, you will have acquired yet another useful data management skill :)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## **App of the Week: Kubic**
 
 If you like toying with optical illusions, you’ll like this app. Meet Kubic, a game topping the Puzzle Game charts in more than 20 countries. There’s an old adage saying that genius lies in simplicity. This game is very simple, with uncluttered design and beautifully drawn cube compositions. But the puzzles are quite fiendish.
 
 ![kubic app](https://static1.abbyy.com/abbyycommedia/26638/img_3879.png)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 Kubic provides a good workout for your brain and encourages abstract thinking. The app includes a big collection of visual tricks to deceive your eyes. The impossible geometrical shapes may seem realistic enough, but just when you expect everything to fall into place, you realize that it’s just an optical illusion.
 
 ![creativity](https://static1.abbyy.com/abbyycommedia/26639/img_3881.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/br/app/kubic/id1115010672?l=en) and [Android](https://play.google.com/store/apps/details?id=com.appsolutegames.kubic&hl=ru).
 
 That’s all from us for today. Until next Monday!
@@ -114,6 +127,9 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

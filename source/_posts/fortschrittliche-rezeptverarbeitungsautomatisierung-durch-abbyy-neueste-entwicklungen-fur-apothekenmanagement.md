@@ -1,7 +1,7 @@
 ---
 title: Fortschrittliche Rezeptverarbeitungsautomatisierung Durch ABBYY - Neueste Entwicklungen Für Apothekenmanagement
-date: 2024-08-21 21:46:52
-updated: 2024-08-22 10:22:36
+date: 2024-08-21T15:00:48.049Z
+updated: 2024-08-22T15:00:48.049Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6db3345e6b05b14e1b02d624eebb2a2ce8b63469f2261321211e5e8c5934467b.jpg
@@ -79,3 +79,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

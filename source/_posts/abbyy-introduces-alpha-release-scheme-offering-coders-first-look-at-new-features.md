@@ -1,7 +1,7 @@
 ---
 title: ABBYY Introduces Alpha Release Scheme, Offering Coders First Look at New Features
-date: 2024-08-21 18:26:10
-updated: 2024-08-22 12:56:38
+date: 2024-08-21T15:00:45.602Z
+updated: 2024-08-22T15:00:45.602Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd74ca01dbc641b737d0316c96d8a2db1900c3240cb26343210c013c6153bd21.jpg
@@ -65,3 +65,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->

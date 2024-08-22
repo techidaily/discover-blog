@@ -1,7 +1,7 @@
 ---
 title: Maximierung Der Nutzenfaktoren Von SharePoint Bei Der National Park Authority Mit ABBYY
-date: 2024-08-20 10:35:42
-updated: 2024-08-22 12:46:48
+date: 2024-08-21T15:00:47.423Z
+updated: 2024-08-22T15:00:47.423Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b8d3db79c4bbb485b6d5ebd5.png
@@ -31,10 +31,16 @@ Government
 
 **Mit Optical Character Recognition Software durchsuchbare Archive für relevante Dokumente erstellen**
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Hintergrund
 
 Die Behörde der New Forest National Park Authority (NFNPA) wurde etabliert, um die natürliche Schönheit, die Tier- und Pflanzenwelt sowie das kulturelle Erbe des Nationalparks in Hampshire, England zu bewahren und zu fördern. Die Behörde ermöglicht es ihren Besuchern mehr über die besonderen Eigenschaften des Parks zu erfahren und diesen zur Erholung zu nutzen. Zudem unterstützt sie das soziale wie auch das wirtschaftliche Wohlergehen der innerhalb des Parks angesiedelten Gemeinden. Lange Zeit nutzte die NFNPA ausschließlich in ihrer Planungsabteilung ein Dokumenten - managementsystem (DMS) – für die übrigen Abteilungen der Behörde stand jedoch keine geeignete Lösung zur Erfassung und Archivierung von Dokumenten zur Verfügung. So wurde letztendlich entschieden, die gesamte Organisation mit einem System auszustatten, mit dem Dateien zukünftig digital gespeichert werden können, einfach durchsuchbar und damit unkompliziert abrufbar sind.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ###   
 Lösung
 
@@ -44,12 +50,18 @@ Die ursprüngliche Strategie zielte darauf ab, das DMS der Planungsabteilung org
 
 Es wurden fünf unterschiedliche Produkte miteinander verglichen und auf ihr Kosten- Nutzen-Verhältnis hin untersucht. Besonderer Wert wurde gelegt auf die Fähigkeit zur Erstellung von PDF-Dateien, die auf angemessene Dateigrößen komprimiert werden können und daher nicht unnötig Speicherplatz wegnehmen. Status Computers, der Vertragshändler der NFNPA, empfahl [ABBYY Recognition Server](https://tools.techidaily.com/abbyy/products/) als bestmögliche Lösung, da dieses Produkt auf einer qualitativ hochwertigen, preisgekrönten OCR basiert, über die Fähigkeit verfügt, PDF Dateien auf kleinere Dateigrößen zu komprimieren, und zudem mit kostengünstigen Lizenzierungsmodellen angeboten wird. ABBYY Recognition Server ist eine robuste serverbasierte Lösung für OCR und zur Dokumenten - erfassung, mit der Organisationen effizient automatisierte Prozesse zur Konvertierung von Dokumenten in Papier- oder Bildform (z. B. PDF, JPEG, TIFF etc.) in durchsuchbare und wiederverwendbare elektronische Dateien (z. B. Word- oder Excel-Formate) aufsetzen können. Die leistungsstarke Technologie unterstützt das Scannen von Dokumenten, eine äußerst exakte Volltext-OCR und das Auslesen von Metadaten zur Bereitstellung von Inhalten, die für E-Archive, Enterprise-Content-Management (ECM), unternehmensübergreifende Suche und andere dokumentenbasierte Geschäftsprozesse geeignet sind. Die Lösung ist skalierbar, zuverlässig und schnell einsetzbar und stellt leistungsstarke OCR-Funktionen in Umgebungen zur Verfügung, in denen ein zentralisiertes Verarbeitungsmanagement und erhöhte Flexibilität bei der Integration von Drittanbieter-Anwendungen erforderlich sind.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### Ergebnis
 
 Mit der neuen Lösung nutzen die 75 Mitarbeiter der NFNPA nun einen Multifunktions - drucker um ein Dokument in einen überwachten Ordner zu scannen. Dort erfasst Recognition Server das Bild, konvertiert es in ein durchsuchbares PDF und exportiert es in eine [SharePoint-Dokumentenbibliothek](https://tools.techidaily.com/abbyy/products/). Recognition Server wurde auch an Microsoft® Outlook® angebunden. Damit kann der Nutzer seine PDF-Dateien per E-Mail an Recognition Server senden und erhält sie konvertiert im Word-Format per E-Mail zurück. Die NFNPA-Mitarbeiter stufen Recognition Server als sehr nützlich ein, während sich die IT-Abteilung über die Fähigkeit begeistert, die Lösung individuell auf ihre Bedürfnisse hin anpassen zu können. Wir haben während der Versuchsphase ausgezeichneten Support von Status Computers und ABBYY erhalten, mit deren Hilfe wir die richtigen Einstellungen für unsere speziellen Anforderungen gefunden haben“, stellt Mr. Fleetwood abschließend fest. „Recognition Server ließ sich an einem einzigen Tag installieren, da es ein recht ‘benutzerfreundliches’ System ist. Unser IT-Team unterzog die vorhandenen Konfigurationen einer Prüfung und replizierte diese dann, um neue Workflows zu erstellen. Wir haben damit eine bedien - freundliche und kosteneffektive Möglichkeit gefunden unsere Dokumente zu archivieren und zukünftig unkompliziert durchsuchbar zu machen.“
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -58,6 +70,9 @@ Mit der neuen Lösung nutzen die 75 Mitarbeiter der NFNPA nun einen Multifunktio
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

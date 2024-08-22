@@ -1,7 +1,7 @@
 ---
 title: Exploring Fintech Advances with ABBYY at the Handelsblatt Yearly Banking Tech Summit
-date: 2024-08-21 12:56:59
-updated: 2024-08-22 10:36:46
+date: 2024-08-21T15:00:46.462Z
+updated: 2024-08-22T15:00:46.462Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/55ff105adfb563907b6c1c05420f78a6c5ab084d04ebfcc926d77ca01d474b27.jpg
@@ -73,3 +73,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

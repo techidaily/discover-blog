@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhancing Your Site's Interactivity with Smart, Personalized Tracking"
-date: 2024-08-19 15:27:20
-updated: 2024-08-22 12:57:52
+date: 2024-08-21T15:00:47.999Z
+updated: 2024-08-22T15:00:47.999Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d529ee3f9777395e3e6b4e63c228e25fbb4330a46358a8f92c3ef7608136a4ab.jpg
@@ -34,6 +34,9 @@ There simply is no reason for either of those activities to remain in the Mediev
 
 ## How does a Process Intelligence Platform support RPA?
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Pre-RPA Implementation
 
 Firstly, [Process Intelligence](https://tools.techidaily.com/abbyy/products/) should be used during the pre-implementation analysis of existing processes to highlight the ideal candidates for an RPA both in terms of process efficiency goals and to define realistic Return on Investment expectations.
@@ -42,6 +45,9 @@ This increased Process IQ delivers 100% end to end process visibility through th
 
 Essentially a Process Intelligence Platform should act as your RPA roadmap, identifying, prioritizing and justifying the right processes to attack — or as one of our customers calls it — “Evidence Based RPA Planning”
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Post RPA-implementation
 
 We all need to remember that whilst the discovery and analysis components of a Process Intelligence deployment can provide great value in a process assessment, it is hardly the final destination! The ultimate goal is to improve them, whether this be achieved through staff training, process re-engineering or through automation. This is the area where a “True” Process Intelligence Platform can deliver unmatched functionality.
@@ -60,8 +66,14 @@ Don’t get left fighting with swords!
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 Joe Rayfield
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

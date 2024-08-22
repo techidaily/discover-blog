@@ -1,7 +1,7 @@
 ---
 title: Securely Manage and Transfer Funds for Utilities Using the Advanced ABBYY Mobile Payments Feature
-date: 2024-08-21 15:20:14
-updated: 2024-08-22 11:15:24
+date: 2024-08-21T15:00:48.078Z
+updated: 2024-08-22T15:00:48.078Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4e831fd04562f2cd6825c32accd78b3641cb3be2e3ea9cbe8b25030ed7edee4b.jpg
@@ -23,6 +23,10 @@ Finance/Banking | Mobile Capture
 
 Banques et Finance | Capture mobile 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

@@ -1,7 +1,7 @@
 ---
 title: "Miloš Savić: Expert in Corporate Information Safeguarding with ABBYY"
-date: 2024-08-19 21:24:48
-updated: 2024-08-22 11:15:34
+date: 2024-08-21T15:00:47.793Z
+updated: 2024-08-22T15:00:47.793Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9eaae45a5ae000b67c414e7abf4faf363e86f993286beb6923a862b27612bc1e.jpg
@@ -43,6 +43,9 @@ Overall, each day presents a new set of challenges and opportunities. This varia
 
 ![Milos Savic ABBYY](https://static1.abbyy.com/abbyycommedia/37581/milos-blog-3.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### What was your previous experience before ABBYY?
 
 Before joining ABBYY, I worked in a couple of different companies. But I would like to highlight my position as an IT Audit Analyst at Deloitte. That role was instrumental in shaping my career path and honing my interest in security.
@@ -59,6 +62,9 @@ I chose to join ABBYY because I recognized a unique opportunity to be a part of 
 
 [Learn from senior executives and ABBYY customers on how to successfully adapt to contemporary challenges using innovative technologies | ABBYY’s The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### What keeps you going, and what are some highlights of your journey with ABBYY so far?
 
 What drives me in my role at ABBYY is the sense of purpose that stems from our mission-driven culture and the opportunity to make a significant impact. One of the most rewarding aspects of my work here has been my active involvement in our [ISO 27001](https://tools.techidaily.com/abbyy/products/) and [SOC2](https://tools.techidaily.com/abbyy/products/) certification processes.
@@ -73,6 +79,9 @@ My favorite benefit at ABBYY is the flexible working arrangements. The ability t
 
 ![Milos Savic ABBYY](https://static1.abbyy.com/abbyycommedia/37583/milos-blog.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Your top advice to someone joining ABBYY, and for someone joining ABBYY in a similar role?
 
 For someone joining ABBYY, my advice would be to embrace the learning opportunities. The company thrives on innovation and values continuous learning. For those joining in a similar role, understanding the broader business context of your work is crucial. It not only makes your work more impactful but also helps in proactive problem-solving.
@@ -81,6 +90,9 @@ For someone joining ABBYY, my advice would be to embrace the learning opportunit
 
 To me, work-life balance isn't just about dividing hours between work and personal life, it's about integration and flexibility. It's about having the autonomy to fulfill my professional commitments without compromising on my personal life and well-being. ABBYY contributes greatly to this understanding, for example, through our wellbeing and wellness days. These days offer us the chance to step away from our usual tasks and focus on self-care and rejuvenation, reflecting the company's understanding that personal health is a key aspect of overall productivity and job satisfaction. So, work-life balance in this context is about creating harmony between our professional goals and personal well-being, and I appreciate ABBYY's commitment to supporting this balance.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Outside of work, what are your hobbies and interests?
 
 Outside of my professional life, two activities that I particularly enjoy are traveling and fitness. Traveling has always been a captivating pastime for me. It's about much more than just seeing new places; it's about immersing myself in diverse cultures, absorbing different lifestyles, and appreciating the stunning variety our world has to offer. The sense of adventure and the thrill of the unknown that accompanies each journey make every trip a memorable experience. One of the most exciting aspects of my travels is the opportunity to capture unique moments, landscapes, and views and share them on my Instagram account.
@@ -93,6 +105,9 @@ So, between my globe-trotting adventures and my daily fitness routine, I strike 
 
 ![Travel photography of castle and flowers](https://static1.abbyy.com/abbyycommedia/37582/milos-blog-4.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Lastly, could you recommend us a book/movie/series/ or activity you have recently discovered or are enjoying at the moment? What’s so great about it?
 
 Absolutely, as a frequent consumer of many different streaming services, I've come across numerous captivating series and films. One series I'd highly recommend is "Black Mirror". It's a unique anthology series that explores a high-tech near future where the greatest innovations collide with the darkest instincts of humanity. Each standalone episode presents a thought-provoking story, making us reconsider the direction our society is heading in, especially regarding our relationship with technology. The series' ability to mix contemporary issues with suspenseful and often dystopian narratives makes it incredibly engaging.
@@ -105,14 +120,25 @@ In addition to this, if you have a penchant for thrilling suspense and storytell
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static2.abbyy.com/abbyycommedia/37760/nina-walker.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 [ABBYY Spotlight: Nina Walker, Head of Customer Experience](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static5.abbyy.com/abbyycommedia/37764/viacheslav-prodan.png) 

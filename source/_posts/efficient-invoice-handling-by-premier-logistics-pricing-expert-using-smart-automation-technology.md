@@ -1,7 +1,7 @@
 ---
 title: Efficient Invoice Handling by Premier Logistics Pricing Expert Using Smart Automation Technology
-date: 2024-08-21 15:24:41
-updated: 2024-08-22 12:30:54
+date: 2024-08-21T15:00:46.393Z
+updated: 2024-08-22T15:00:46.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d52ef143e5ac406fb5edcd5e28a24a2a1379f299efd751d4b382d0440e3e89ad.jpg
@@ -54,14 +54,23 @@ AFS, a world-leader in transportation cost management, processes 70,000,000 invo
 
 ###### SEE HOW ABBYY CAN HELP
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2,600,000** 
 
 paper invoices a year
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### a **50**% drop
 
 of turnaround time
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### $**60,000** of
 
 annual savings
@@ -98,10 +107,16 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 
 [![Transportation & Logistics](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/38090/ds-260_afs-case-study_thumbnails-gray-360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [read more](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -112,6 +127,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

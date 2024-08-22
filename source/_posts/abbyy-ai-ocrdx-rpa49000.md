@@ -1,7 +1,7 @@
 ---
 title: 伊藤忠商事株式会社がABBYY AI OCRをDX基盤で運用した業務改革 - RPAと組み合わせて年間4万9000時間削減
-date: 2024-08-21 14:39:13
-updated: 2024-08-22 10:18:38
+date: 2024-08-21T15:00:45.753Z
+updated: 2024-08-22T15:00:45.753Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/482c489aae9be3633db03ca123df50eb46b4ca67b2d63a56b54a85ecacf2cf27.jpg
@@ -46,6 +46,9 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

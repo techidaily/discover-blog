@@ -1,7 +1,7 @@
 ---
 title: ABBYY Forme Un Partenariat Mondial Avec Kodak Alaris Et Renforce, Célébrant L’innovation Et La Collaboration Transfrontalières
-date: 2024-08-20 14:37:28
-updated: 2024-08-22 11:38:31
+date: 2024-08-21T15:00:45.765Z
+updated: 2024-08-22T15:00:45.765Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d50bbc29912cb43ec93cd3720edb01228fbd6306ec3185b1604a33af30298ce1.jpg
@@ -39,14 +39,23 @@ Kodak Alaris domine le marché des solutions de capture de données professionne
 
 © 2022 Kodak Alaris Inc. TM/MC/MR : Alaris. Toutes les marques commerciales et les dénominations commerciales utilisées sont la propriété de leurs détenteurs respectifs. La marque commerciale et l'identité visuelle de Kodak sont utilisées sous licence acquise auprès de la société Eastman Kodak Company.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Contact
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Brooke Crowe
 
 [Brooke.Leone@kodakalaris.com](https://tools.techidaily.com/abbyy/products/)

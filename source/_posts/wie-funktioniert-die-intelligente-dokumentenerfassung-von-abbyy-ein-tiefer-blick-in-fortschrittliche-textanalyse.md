@@ -1,7 +1,7 @@
 ---
 title: "Wie Funktioniert Die Intelligente Dokumentenerfassung Von ABBYY: Ein Tiefer Blick in Fortschrittliche Textanalyse"
-date: 2024-08-20 11:37:53
-updated: 2024-08-22 11:30:22
+date: 2024-08-21T15:00:47.056Z
+updated: 2024-08-22T15:00:47.056Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/234a90d5c27844c283f4441b2b9e5e76ee9e8064b4a1ba5d5f5c1598b8d0670d.jpg
@@ -49,9 +49,15 @@ Um zu verstehen, was IDP ist und wie sie Unternehmen nützt, muss man wissen, wa
 * **IDP ist nicht nur OCR oder Datenerfassung.**  IDP umfasst zwar OCR- und Datenerfassungstechnologien, diese sind jedoch Teil eines größeren Pakets von Funktionen, die die Verarbeitung von Inhalten zusätzlich mit Fachwissen und Entscheidungsfindungsmethoden unterstützen.
 * **IDP ist keine robotische Prozessautomatisierung (Robotic Process Automation, RPA).**  RPA bezeichnet die Automatisierung eigenständiger Aufgaben innerhalb definierter Prozesse auf Basis von Daten. Da der Inhalt eine Quelle dieser Daten ist, ist es wichtig, den Inhalt im Kontext zu verstehen, bevor daraus Daten für verschiedene nachgelagerte Prozesse extrahiert werden können. Die [Robotic Process Automation](https://tools.techidaily.com/abbyy/products/) kann dies nicht allein leisten und benötigt daher die Unterstützung von IDP, um qualifizierte inhaltliche Entscheidungen zu treffen.
 * **IDP ist nicht dasselbe wie ChatGPT.** Viele Leute denken, ChatGPT sei dasselbe wie optische Zeichenerkennung (OCR), aber dem ist nicht so. In Wirklichkeit handelt es sich um ein Modell zur Verarbeitung natürlicher Sprache (NLP), das Deep-Learning-Algorithmen verwendet, um in menschlicher Sprache Textantworten auf Benutzeranfragen zu erzeugen. Dagegen ist ABBYY Vantage eine [IDP-Lösung,](https://tools.techidaily.com/abbyy/products/) die OCR-Technologie (Optical Character Recognition) einsetzt, um Daten aus Dokumenten verschiedener Art zu extrahieren, darunter [Rechnungen](https://tools.techidaily.com/abbyy/products/), Bestellungen, Verträge und vieles mehr.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Die Entwicklung der IDP  
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-de.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Wie funktioniert die intelligente Dokumentenverarbeitung? 
 
 IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten im umgebenden Text zur Entitätsextraktion, mit der automatisch und mit hoher Genauigkeit festgestellt wird, auf welche Entitäten verwiesen wird. Bezeichnet das Wort „Jaguar“ beispielsweise eine Großkatze oder ein Auto? Oder bezeichnet das Wort „Sue“ in einem englischen Text eine Person oder eine rechtliche Klage? Mittels NLP identifiziert und extrahiert IDP unstrukturierte Daten mit bisher unerreichter Präzision, wie ein menschliches Gehirn, das schnell auf veränderte Eingaben reagiert und das bestmögliche Ergebnis liefert. 
@@ -75,6 +81,9 @@ In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizie
 
 **![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/process-intelligence-how-it-works-de.jpg)**
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [**Process Mining**](https://tools.techidaily.com/abbyy/products/) **hilft Unternehmen, ihre Prozesse zu analysieren, um intelligente Entscheidungen darüber zu treffen, wo die Dokumentenverarbeitung automatisiert werden soll. Es extrahiert Zeitstempeldaten aus Informationssystemen und wendet KI an, um ein visuelles Modell des Prozesses von Anfang bis Ende zu erstellen, einschließlich aller Abweichungen.** Die Prozessverantwortlichen erhalten einen klaren Überblick darüber, wie die Inhalte durch den Prozess fließen, und erhalten die nötigen Einblicke, um Ineffizienzen zu erkennen und zu beseitigen, die den Erfolg der IDP-Implementierung beeinträchtigen könnten.
 
 Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](https://tools.techidaily.com/abbyy/products/) mit IDP zusammen, um Unternehmen zu befähigen:
@@ -84,6 +93,9 @@ Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](h
 * festzulegen, wie sie mit Inhalten umgehen sollten, damit der Prozess besser funktioniert; und
 * die erforderlichen Document-Skills zur Optimierung der Verarbeitung von Inhalten anzuwenden.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## IDP-Anwendungsfälle: Digitale Beherrschung Ihrer Daten und Prozesse 
 
 Die Vielseitigkeit intelligenter Dokumentenverarbeitungsanwendungen bedeutet, dass Dokumente in jeder Sprache, jedem Format und zu jeder Zeit in intelligenten Automatisierungslösungen genutzt werden können. Wir werden vier Anwendungsfälle in den Bereichen Versicherung, Neukundenaufnahme/KYC, Logistik und Kreditabwicklung untersuchen, um Beispiele für den Einsatz von IDP zu zeigen. 
@@ -114,6 +126,9 @@ Das weltweit im Bereich [Logistik](https://tools.techidaily.com/abbyy/products/)
 
 Das Unternehmen, das im Jahr 2022 einen Umsatz von 100 Milliarden US-Dollar erwirtschaftete, nutzte zuvor ein weitgehend manuelles Buchhaltungssystem für die Verarbeitung von Hunderttausenden von Rechnungen pro Jahr. Durch die Einführung der intelligenten Dokumentenverarbeitung von ABBYY war das Unternehmen in der Lage, Rechnungen von 124 Lieferanten in verschiedenen Sprachen automatisch zu verarbeiten und so Fehler zu reduzieren und die Produktivität zu steigern. Das Unternehmen hat dann das IDP-Automatisierungsprojekt auf andere Abteilungen ausgeweitet und konnte so eine unglaubliche Effizienzsteigerung von 70 Prozent erzielen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Die Auswahl der richtigen Software für intelligente Dokumentenverarbeitung 
 
 Künstliche Intelligenz ist in aller Munde, und die Technologielandschaft entwickelt sich ständig weiter. Die Wahl der richtigen intelligenten Dokumentenverarbeitungssoftware ist daher ausschlaggebend, um sicherzustellen, dass Sie den richtigen Weg zur optimalen digitalen Transformation Ihrer Geschäftsprozesse einschlagen. Hier einige wichtige Punkte, die Sie beachten sollten. 
@@ -175,6 +190,9 @@ _Anmerkung der Redaktion: Dieser Blogbeitrag wurde ursprünglich am 8\. Dezember
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy

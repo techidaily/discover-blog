@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Workflows: Seamless ABBYY and Automation Anywhere Synchronization"
-date: 2024-08-21 19:26:33
-updated: 2024-08-22 11:38:15
+date: 2024-08-21T15:00:46.135Z
+updated: 2024-08-22T15:00:46.135Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cd0147204ccaf08069deddb70dcee7e4ad07fbd615beb8c551d393f04156cd7b.jpg
@@ -34,6 +34,9 @@ La solution d’ABBYY pour Automation Anywhere vous permet :
 * Automatisez la classification des documents et l’extraction de données par le biais d’un apprentissage automatique continu et des informations saisies par l’utilisateur.
 * Permettez à la RPA de fournir les résultats et l’impact commercial attendus en automatisant les processus axés sur le contenu qui impliquent des documents, des images et des scans.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Avantages de l’intégration
 
 ##### Automatiser diverses décisions de l’entreprise reposant sur des documents 
@@ -60,6 +63,13 @@ Le connecteur ABBYY FlexiCapture pour Automation Anywhere est un MetaBot qui per
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/automationanywhere_logo_rev_120px.png?h=44&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)

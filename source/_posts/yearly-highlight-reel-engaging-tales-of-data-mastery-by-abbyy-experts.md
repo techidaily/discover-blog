@@ -1,7 +1,7 @@
 ---
 title: "Yearly Highlight Reel: Engaging Tales of Data Mastery by ABBYY Experts"
-date: 2024-08-21 11:37:56
-updated: 2024-08-22 10:40:22
+date: 2024-08-21T15:00:47.497Z
+updated: 2024-08-22T15:00:47.497Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01714150012339f1efdced7e1f734d013877746c193a3029a59cdde359ecf8d8.jpg
@@ -29,12 +29,19 @@ After a 20-year tenure with the company, our Chief Marketing Officer, Jupp Stoep
 
 [Read the article.](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### 2\. Successful Digital Transformation Starts with a True Understanding of Processes
 
 Digital Intelligence empowers enterprises to make a tremendous impact where it matters most: customer experience, competitive advantage, visibility, and compliance. Ryan Raiker, Director of Digital Marketing and process expert, discusses how businesses need to have an in-depth understanding of their organization’s processes in his article with RTInsights.com.
 
 [Read the article.](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### 3\. Understand Your Business Processes or Risk Failing
 
 Automation has fundamentally transformed the enterprise. From streamlining workflows and increasing operational efficiencies to improving the customer experience, automation enhances business-critical functions and accelerates digital transformation initiatives.
@@ -45,12 +52,18 @@ Robotic process automation (RPA) technologies enable employees to focus less on 
 
 [Read the article.](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### 4\. A New Approach to Processes: Transforming Your Business and Navigating Change with Process Intelligence
 
 From evolving customer demands, complex legal and regulatory environments, increasing amounts of data, and an unexpected global health crisis, organizations of all sizes and across all industries and geographical markets are being challenged in ways they have never seen before. In his article with Workflow Magazine, ABBYY CMO Scott Opitz talks about how organizations need to be agile and timely in effectively responding, adapting, and overcoming to best serve their customers, especially during times of change.
 
 [Read the article.](https://workflowotg.com/a-new-approach-to-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. 3 Questions Every Leader Needs to Ask for a Resilient Supply Chain
 
 While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted virtually every industry, it is perhaps the most pronounced in the supply chain. Three out of four U.S. companies report that their supply chains have been disrupted as a result of the crisis. Shipment delays and stock shortages have become common occurrences.
@@ -67,6 +80,9 @@ In today’s climate, healthcare providers must protect their profit margins and
 
 [Read the article.](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 7\. Task & Process Mining Clear Pathway for Dynamite RPA
 
 Adrian Bridgwater, technology journalist, and his latest IDG Connect article explains that only by understanding the way digital business works at the most granular level and being able to categorize different workflows into defined discrete elements, can we manage people effectively and allow RPA bots to sit alongside their human counterparts with maximum efficiency. The article includes ABBYY as one firm operating in the “end-to-end” space.
@@ -75,6 +91,9 @@ Adrian Bridgwater, technology journalist, and his latest IDG Connect article exp
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **_ABBYY Timeline, a cloud-based platform, uses advanced task and process mining to deliver 360-degree visibility into business operations by combining insights from people, processes, and content. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 

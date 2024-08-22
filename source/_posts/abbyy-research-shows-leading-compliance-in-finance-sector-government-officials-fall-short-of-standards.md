@@ -1,7 +1,7 @@
 ---
 title: ABBYY Research Shows Leading Compliance in Finance Sector; Government Officials Fall Short of Standards
-date: 2024-08-20 15:39:41
-updated: 2024-08-22 12:28:43
+date: 2024-08-21T15:00:45.774Z
+updated: 2024-08-22T15:00:45.774Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11d2d4de93a06ce4ca47d0742.jpg
@@ -81,3 +81,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

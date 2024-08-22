@@ -1,7 +1,7 @@
 ---
 title: "Streamline Health Sector with ABBYY Server: Advanced Digitalization Tools for Enhanced Patient Care"
-date: 2024-08-21 14:39:42
-updated: 2024-08-22 11:24:29
+date: 2024-08-21T15:00:46.934Z
+updated: 2024-08-22T15:00:46.934Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f659a3b4bb25cd415ed00e454404730b9869c867cd294c9e58180160b4e9b56.jpg
@@ -100,6 +100,9 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

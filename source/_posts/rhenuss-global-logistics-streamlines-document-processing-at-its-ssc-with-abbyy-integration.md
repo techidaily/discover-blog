@@ -1,7 +1,7 @@
 ---
 title: Rhenus's Global Logistics Streamlines Document Processing at Its SSC with ABBYY Integration
-date: 2024-08-21 17:55:13
-updated: 2024-08-22 10:52:12
+date: 2024-08-21T15:00:46.558Z
+updated: 2024-08-22T15:00:46.558Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afdff538e1080a5add013b39bf.jpg
@@ -23,6 +23,9 @@ Transportation & Logistics | Document Processing | Shipping Documents
 
 輸送およびロジスティクス | 輸送関連書類 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

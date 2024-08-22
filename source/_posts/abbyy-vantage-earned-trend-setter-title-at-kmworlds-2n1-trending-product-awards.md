@@ -1,7 +1,7 @@
 ---
 title: ABBYY Vantage Earned 'Trend Setter' Title at KMWorld's 2N1 Trending Product Awards
-date: 2024-08-19 13:51:54
-updated: 2024-08-22 12:56:52
+date: 2024-08-21T15:00:47.523Z
+updated: 2024-08-22T15:00:47.523Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c41e214e42161b19b3ba596b247b1528c5c85cbd29aaa92283a320b0b166cc8.jpg
@@ -49,6 +49,9 @@ Join us at our upcoming [virtual ABBYY Vantage Broadcast](https://tools.techidai
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY and PwC India Join Forces to Deliver Cutting-Edge Business Automation Platforms - Latest News Release
-date: 2024-08-19 11:51:59
-updated: 2024-08-22 12:50:49
+date: 2024-08-21T15:00:47.082Z
+updated: 2024-08-22T15:00:47.082Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2f0511baeab6c403517618b1.jpg
@@ -60,3 +60,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->

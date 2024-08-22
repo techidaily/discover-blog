@@ -1,7 +1,7 @@
 ---
 title: Streamlining Bill Payments at Milaha with the Joint Solution by ABBYY, FourNxt and Blue Prism
-date: 2024-08-19 16:14:54
-updated: 2024-08-22 10:30:34
+date: 2024-08-21T15:00:46.941Z
+updated: 2024-08-22T15:00:46.941Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2597cd92a0acd8548892430a7d1a31aad74db81001d653dab278938ebfa823a1.jpg
@@ -101,6 +101,9 @@ automation, invoice processing errors were eliminated and employee productivity 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
