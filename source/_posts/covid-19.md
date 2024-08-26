@@ -1,7 +1,7 @@
 ---
 title: COVID-19と労働パターンの変革：新しい生活基準
-date: 2024-08-21T15:00:46.377Z
-updated: 2024-08-22T15:00:46.377Z
+date: 2024-08-25T23:03:15.961Z
+updated: 2024-08-26T23:03:15.961Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/668fe014e6bae21be4d1f17bf36923c523f3242cbf8f9156a716780e5d4eeb63.jpg
@@ -218,3 +218,69 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-cutting-edge-creativity-top-editors-for-online-sharing/"><u>[New] 2024 Approved  Cutting-Edge Creativity  Top Editors for Online Sharing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-harnessing-the-power-of-mov-recording-in-windows-10/"><u>[New] 2024 Approved  Harnessing the Power of MOV Recording in Windows 10</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-integrating-your-vimeo-videos-into-instagram/"><u>[New] In 2024, Integrating Your Vimeo Videos Into Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-joy-journeys-a-curated-list-of-the-best-humor-vids-online/"><u>[New] Joy Journeys  A Curated List of the Best Humor Vids Online</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-stealthy-strategies-for-eliminating-hashtags/"><u>[Updated] 2024 Approved  Stealthy Strategies for Eliminating Hashtags</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-4-ultimate-strategies-for-creating-softened-iphone-pics/"><u>[Updated] 2024 Approved  The 4 Ultimate Strategies for Creating Softened iPhone Pics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-workaround-twitter-videos-in-chrome-problem/"><u>[Updated] 2024 Approved  Workaround  Twitter Videos in Chrome Problem</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gmail-to-zoom-tips-for-smooth-virtual-meeting-transitions/"><u>[Updated] Gmail to Zoom  Tips for Smooth Virtual Meeting Transitions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-capturing-clarity-exploring-the-features-of-apeakscreen-software/"><u>[Updated] In 2024, Capturing Clarity  Exploring the Features of Apeakscreen Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-masterpiece-makers-top-6-innovators-in-digital-art-space/"><u>[Updated] Masterpiece Makers  Top 6 Innovators in Digital Art Space</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-prime-6-social-sites-boosting-biz-success/"><u>[Updated] Prime 6 Social Sites Boosting Biz Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-quintessential-fps-experiences-ranked-by-fun-factor-for-2024/"><u>[Updated] Quintessential FPS Experiences Ranked by Fun Factor for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-2021nelsonhall/"><u>「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-selecting-prime-meme-blueprints/"><u>2024 Approved  Selecting Prime Meme Blueprints</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-apple-iphone-xr-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from Apple iPhone XR</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-ai-ocrdx-rpa49000/"><u>伊藤忠商事株式会社がABBYY AI OCRをDX基盤で運用した業務改革 - RPAと組み合わせて年間4万9000時間削減</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-celebrates-a-15-increase-in-worldwide-earnings-for-fiscal-year-2018-insights-from-the-latest-financial-report/"><u>ABBYY Celebrates a 15%% Increase in Worldwide Earnings for Fiscal Year 2018: Insights From the Latest Financial Report</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-forme-un-partenariat-mondial-avec-kodak-alaris-et-renforce-celebrant-linnovation-et-la-collaboration-transfrontalieres/"><u>ABBYY Forme Un Partenariat Mondial Avec Kodak Alaris Et Renforce, Célébrant L’innovation Et La Collaboration Transfrontalières</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-research-shows-leading-compliance-in-finance-sector-government-officials-fall-short-of-standards/"><u>ABBYY Research Shows Leading Compliance in Finance Sector; Government Officials Fall Short of Standards</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-secures-top-position-in-the-2022-everest-group-idp-peak-matrix-evaluation/"><u>ABBYY Secures Top Position in the 2022 Everest Group IDP PEAK Matrix Evaluation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-the-premier-smart-automation-ally-of-arsenal-ladies-fans/"><u>ABBYY: The Premier Smart Automation Ally of Arsenal Ladies Fans</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-innovative-in-echtzeit-texterkennung-optimiert-das-digitale-erlebnis-fur-kunden/"><u>ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-strategic-guidance-natasha-mann-as-a-key-board-member/"><u>ABBYY's Strategic Guidance: Natasha Mann as a Key Board Member</u></a></li>
+<li><a href="https://extra-information.techidaily.com/assemble-your-own-google-vr-viewing-device-for-2024/"><u>Assemble Your Own Google VR Viewing Device for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/assessing-the-effectiveness-of-your-claims-handling-process-an-insight-with-abbyy-ebook/"><u>Assessing the Effectiveness of Your Claims Handling Process - An Insight with ABBYY eBook</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-lead-generation-with-cookiebot-boosting-engagement-and-conversions/"><u>Automated Lead Generation with Cookiebot: Boosting Engagement and Conversions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-f04-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy F04 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/beyond-analytics-how-combining-advanced-technologies-can-provide-a-complete-solution-to-your-business-hurdles-insights-from-abbyy-blog/"><u>Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-conversions-enhance-your-digital-presence/"><u>Cookiebot-Driven Conversions: Enhance Your Digital Presence</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-capabilities/"><u>Cookiebot-Driven Performance: Enhancing Your Website's Capabilities</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-effortlessly/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-functionality-boosting-online-engagement-effortlessly/"><u>Cookiebot-Enabled Functionality: Boosting Online Engagement Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-marketing-success/"><u>Cookiebot-Enabled: Enhancing User Experience & Marketing Success</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-smart-analytics/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Smart Analytics</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhanced-experience-boost-your-sites-conversion-rates/"><u>Cookiebot-Enhanced Experience: Boost Your Site's Conversion Rates</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhanced-experience-boost-your-sites-engagement-and-conversions/"><u>Cookiebot-Enhanced Experience: Boost Your Site's Engagement and Conversions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-your-efficient-solution-for-dynamic-site-personalization/"><u>Cookiebot: Your Efficient Solution for Dynamic Site Personalization</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebots-advanced-data-utilization-transforming-user-experience-and-seo-strategies/"><u>Cookiebot's Advanced Data Utilization - Transforming User Experience and SEO Strategies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/customized-lead-generation-with-cutting-edge-cookiebot-technology/"><u>Customized Lead Generation with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effizientes-rechnungsmanagement-fur-sberbank-kundinnen-und-kunden-mit-der-mobilen-app-powered-durch-abbyy-technologien/"><u>Effizientes Rechnungsmanagement Für Sberbank-Kundinnen Und Kunden Mit Der Mobilen App: Powered Durch ABBYY Technologien</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-website-insights-powerfully-the-cookiebot-integration-advantage/"><u>Enhance Website Insights Powerfully: The Cookiebot Integration Advantage</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-itel-s23-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fine-tuning-your-videos-shape-with-aspect-ratio/"><u>In 2024, Fine-Tuning Your Video's Shape with Aspect Ratio</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-srt-tools-the-leading-eight-uncovered/"><u>In 2024, Free SRT Tools  The Leading Eight Uncovered</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/1716462690279-likee-vs-tiktok-will-likee-surpass-tiktok/"><u>Likee Vs. TikTok  Will Likee Surpass TikTok?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-viral-cellphone-alert-songs-you-cant-ignore/"><u>New 2024 Approved Viral Cellphone Alert Songs You Cant Ignore</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/patrick-p-jean-executive-leader-at-abbyy-as-cpo-and-cto/"><u>Patrick P. Jean, Executive Leader at ABBYY as CPO and CTO</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pioneering-knowledge-management-solutions-abbyy-featured-amongst-the-worlds-leading-companies-in-kmworld-rankings/"><u>Pioneering Knowledge Management Solutions: ABBYY Featured Amongst the World's Leading Companies in KMWorld Rankings</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/print-device-driver-not-compatible-with-multiple-windows-systems-for-hp-d1360/"><u>Print Device Driver Not Compatible with Multiple Windows Systems for HP D1360</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/rhenuss-global-logistics-streamlines-document-processing-at-its-ssc-with-abbyy-integration/"><u>Rhenus's Global Logistics Streamlines Document Processing at Its SSC with ABBYY Integration</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/robert-youngjohns-named-new-board-chairman-at-abbyy-steering-companys-future-growth-initiatives/"><u>Robert Youngjohns Named New Board Chairman at ABBYY, Steering Company's Future Growth Initiatives</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/robotic-process-automation-triumphs-over-half-of-uk-firms-embrace-rpa-and-process-mining-says-abbyy-insights/"><u>Robotic Process Automation Triumphs: Over Half of UK Firms Embrace RPA & Process Mining, Says ABBYY Insights</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/schnelle-zollerleichterungen-ermoglichen-den-schnellen-austausch-von-gutern-zwischen-grossbritannien-und-der-eu-fertigung-in-nur-5-minuten/"><u>Schnelle Zollerleichterungen Ermöglichen Den Schnellen Austausch Von Gütern Zwischen Großbritannien Und Der EU – Fertigung in Nur 5 Minuten</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/staying-ahead-of-the-heat-game-thermaltakes-luxurious-yet-expensive-massive-tm-laptop-cooling-pad-an-in-depth-review/"><u>Staying Ahead of the Heat Game - Thermaltake's Luxurious Yet Expensive Massive TM Laptop Cooling Pad: An In-Depth Review</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/supplementary-data-handling-amendment-enhancing-information-management/"><u>Supplementary Data Handling Amendment: Enhancing Information Management</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tackling-the-overuse-of-processor-resources-in-windows-sound-card-graphs/"><u>Tackling the Overuse of Processor Resources in Windows Sound Card Graphs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tech-rumors-confirmed-the-insider-look-at-teslas-upcoming-bot-price-and-release-info/"><u>Tech Rumors Confirmed? The Insider Look at Tesla's Upcoming Bot - Price & Release Info</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-future-of-photo-shooting-smart-hdr-technology-insights-for-2024/"><u>The Future of Photo Shooting  Smart HDR Technology Insights for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/uniformitat-in-der-finanzabrechnung-fur-die-rochling-gruppe-durch-den-einsatz-von-abbyy-und-sap/"><u>Uniformität in Der Finanzabrechnung Für Die Röchling-Gruppe Durch Den Einsatz Von ABBYY Und SAP</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-user-engagement-through-strategic-tags/"><u>Unlocking User Engagement Through Strategic Tags</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/44ox44ot44k744k55yig5p6q44ks5rex44kb44kl44k44k544kv5yplusk44gz44ox44ot44k744k544oe44kk44ol44oz44kw/"><u>プロセス分析を深めるタスク及びプロセスマイニング</u></a></li>
+</ul></div>

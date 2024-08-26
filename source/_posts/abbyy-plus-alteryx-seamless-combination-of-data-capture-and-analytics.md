@@ -1,7 +1,7 @@
 ---
 title: "ABBYY + Alteryx: Seamless Combination of Data Capture & Analytics"
-date: 2024-08-21T15:00:46.613Z
-updated: 2024-08-22T15:00:46.613Z
+date: 2024-08-25T23:03:46.342Z
+updated: 2024-08-26T23:03:46.342Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a1279cf80c48b5d07e445a792c9d8724bed8be94f6300bf5faaee6611684917.jpg
@@ -243,3 +243,54 @@ See how you can gain a 360-degree view of your business operations, enabling bus
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-obs-studio-vs-fraps-which-is-a-better-screen-capture-software/"><u>[New] 2024 Approved  OBS Studio vs Fraps – Which Is A Better Screen Capture Software?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-find-the-perfect-video-collaboration-app-our-choice-of-10-free-tools/"><u>[New] Find the Perfect Video Collaboration App  Our Choice of 10 Free Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-extract-your-favorites-best-playlist-tools-reviewed-and-rated/"><u>[New] In 2024, Extract Your Favorites  Best Playlist Tools Reviewed and Rated</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-iphone-video-editing-shorten-crop-and-resize-basics/"><u>[New] In 2024, IPhone Video Editing  Shorten, Crop & Resize Basics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-lightening-your-day-with-humor-comical-facebook-detention-memes/"><u>[New] Lightening Your Day with Humor  Comical Facebook Detention Memes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-deciphering-the-covert-codes-of-snapchats-emojis/"><u>[Updated] In 2024, Deciphering the Covert Codes of Snapchat's Emojis</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-secure-quick-and-free-screen-captures-on-windows-8-for-2024/"><u>[Updated] Secure, Quick, & Free Screen Captures on Windows 8 for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-2021nelsonhall/"><u>「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-ai-ocrdx-rpa49000/"><u>伊藤忠商事株式会社がABBYY AI OCRをDX基盤で運用した業務改革 - RPAと組み合わせて年間4万9000時間削減</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-celebrates-a-15-increase-in-worldwide-earnings-for-fiscal-year-2018-insights-from-the-latest-financial-report/"><u>ABBYY Celebrates a 15%% Increase in Worldwide Earnings for Fiscal Year 2018: Insights From the Latest Financial Report</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-forme-un-partenariat-mondial-avec-kodak-alaris-et-renforce-celebrant-linnovation-et-la-collaboration-transfrontalieres/"><u>ABBYY Forme Un Partenariat Mondial Avec Kodak Alaris Et Renforce, Célébrant L’innovation Et La Collaboration Transfrontalières</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-research-shows-leading-compliance-in-finance-sector-government-officials-fall-short-of-standards/"><u>ABBYY Research Shows Leading Compliance in Finance Sector; Government Officials Fall Short of Standards</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-secures-top-position-in-the-2022-everest-group-idp-peak-matrix-evaluation/"><u>ABBYY Secures Top Position in the 2022 Everest Group IDP PEAK Matrix Evaluation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-the-premier-smart-automation-ally-of-arsenal-ladies-fans/"><u>ABBYY: The Premier Smart Automation Ally of Arsenal Ladies Fans</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-innovative-in-echtzeit-texterkennung-optimiert-das-digitale-erlebnis-fur-kunden/"><u>ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-strategic-guidance-natasha-mann-as-a-key-board-member/"><u>ABBYY's Strategic Guidance: Natasha Mann as a Key Board Member</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/assessing-the-effectiveness-of-your-claims-handling-process-an-insight-with-abbyy-ebook/"><u>Assessing the Effectiveness of Your Claims Handling Process - An Insight with ABBYY eBook</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-lead-generation-with-cookiebot-boosting-engagement-and-conversions/"><u>Automated Lead Generation with Cookiebot: Boosting Engagement and Conversions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/beyond-analytics-how-combining-advanced-technologies-can-provide-a-complete-solution-to-your-business-hurdles-insights-from-abbyy-blog/"><u>Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-conversions-enhance-your-digital-presence/"><u>Cookiebot-Driven Conversions: Enhance Your Digital Presence</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-capabilities/"><u>Cookiebot-Driven Performance: Enhancing Your Website's Capabilities</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-effortlessly/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-marketing-success/"><u>Cookiebot-Enabled: Enhancing User Experience & Marketing Success</u></a></li>
+<li><a href="https://techidaily.com/cookiebot-enhanced-user-experience-for-your-website/"><u>Cookiebot-Enhanced User Experience for Your Website</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/how-munich-enhances-efficiency-by-partnering-with-abbyy-for-automated-documentation/"><u>How Munich Enhances Efficiency by Partnering with ABBYY for Automated Documentation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-oppo-a58-4g-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Oppo A58 4G</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>In 2024, Free Video Wizardry  Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-initiating-live-video-sharing-complete-walkthrough/"><u>In 2024, Initiating Live Video Sharing  Complete Walkthrough</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/in-depth-btoes-review-a-comprehensive-overview-of-international-operational-mastery/"><u>In-Depth BTOES Review: A Comprehensive Overview of International Operational Mastery</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/iphone-document-scanning-and-conversion-with-ocr-transform-pdfsjpegs-into-editable-text-using-finereader/"><u>IPhone Document Scanning & Conversion with OCR - Transform PDFs/JPEGs Into Editable Text Using FineReader</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/isgs-premier-choice-abbyy-vantage-and-timeline-as-top-tier-navigators-of-intelligent-automation-solutions/"><u>ISG's Premier Choice: ABBYY Vantage & Timeline as Top-Tier Navigators of Intelligent Automation Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/leverage-cookiebot-technology-for-improved-website-engagement-and-seo-success/"><u>Leverage Cookiebot Technology for Improved Website Engagement and SEO Success</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/leveraging-cookiebot-technology-for-superior-site-results/"><u>Leveraging Cookiebot Technology for Superior Site Results</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/leveraging-the-power-of-cookiebot-for-advanced-site-engagement/"><u>Leveraging the Power of Cookiebot for Advanced Site Engagement</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/patrick-p-jean-executive-leader-at-abbyy-as-cpo-and-cto/"><u>Patrick P. Jean, Executive Leader at ABBYY as CPO and CTO</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pioneering-knowledge-management-solutions-abbyy-featured-amongst-the-worlds-leading-companies-in-kmworld-rankings/"><u>Pioneering Knowledge Management Solutions: ABBYY Featured Amongst the World's Leading Companies in KMWorld Rankings</u></a></li>
+<li><a href="https://win-able.techidaily.com/rainbow-six-siege-how-to-overcome-pc-black-screen-glitches-and-enjoy-uninterrupted-gameplay/"><u>Rainbow Six Siege: How to Overcome PC Black Screen Glitches and Enjoy Uninterrupted Gameplay</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/rhenuss-global-logistics-streamlines-document-processing-at-its-ssc-with-abbyy-integration/"><u>Rhenus's Global Logistics Streamlines Document Processing at Its SSC with ABBYY Integration</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/robert-youngjohns-named-new-board-chairman-at-abbyy-steering-companys-future-growth-initiatives/"><u>Robert Youngjohns Named New Board Chairman at ABBYY, Steering Company's Future Growth Initiatives</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/robotic-process-automation-triumphs-over-half-of-uk-firms-embrace-rpa-and-process-mining-says-abbyy-insights/"><u>Robotic Process Automation Triumphs: Over Half of UK Firms Embrace RPA & Process Mining, Says ABBYY Insights</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/schnelle-zollerleichterungen-ermoglichen-den-schnellen-austausch-von-gutern-zwischen-grossbritannien-und-der-eu-fertigung-in-nur-5-minuten/"><u>Schnelle Zollerleichterungen Ermöglichen Den Schnellen Austausch Von Gütern Zwischen Großbritannien Und Der EU – Fertigung in Nur 5 Minuten</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/supplementary-data-handling-amendment-enhancing-information-management/"><u>Supplementary Data Handling Amendment: Enhancing Information Management</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/uniformitat-in-der-finanzabrechnung-fur-die-rochling-gruppe-durch-den-einsatz-von-abbyy-und-sap/"><u>Uniformität in Der Finanzabrechnung Für Die Röchling-Gruppe Durch Den Einsatz Von ABBYY Und SAP</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unleash-enhanced-cooling-with-cooler-master-surpass-the-300w-barrier-using-their-advanced-aio-and-air-solutions/"><u>Unleash Enhanced Cooling with Cooler Master: Surpass the 300W Barrier Using Their Advanced AIO and Air Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/44ox44ot44k744k55yig5p6q44ks5rex44kb44kl44k44k544kv5yplusk44gz44ox44ot44k744k544oe44kk44ol44oz44kw/"><u>プロセス分析を深めるタスク及びプロセスマイニング</u></a></li>
+</ul></div>

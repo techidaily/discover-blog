@@ -1,7 +1,7 @@
 ---
 title: ABBYY Introduces Alpha Release Scheme, Offering Coders First Look at New Features
-date: 2024-08-21T15:00:45.602Z
-updated: 2024-08-22T15:00:45.602Z
+date: 2024-08-25T23:01:47.569Z
+updated: 2024-08-26T23:01:47.569Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd74ca01dbc641b737d0316c96d8a2db1900c3240cb26343210c013c6153bd21.jpg
@@ -69,3 +69,64 @@ Connect with us
 <!-- affiliate ads begin -->
 <a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-paper-trail-windows-1087-snapshot-techniques/"><u>[New] 2024 Approved  Paper Trail  Windows 10/8/7 Snapshot Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-choosing-the-best-camera-for-filming-mirrorless-or-dslr-for-2024/"><u>[New] Choosing the Best Camera for Filming  Mirrorless or DSLR for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-perfecting-the-closure-a-practical-guide-to-vimeos-end-credits-for-2024/"><u>[New] Perfecting the Closure  A Practical Guide to Vimeo's End Credits for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-ways-to-reshuffle-youtube-tracks-on-pcphonetv-for-2024/"><u>[New] Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-definitive-steps-for-online-streaming-audio-archiving-for-2024/"><u>[New] The Definitive Steps for Online Streaming Audio Archiving for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-videotwitterconverter-direct-media-conversion/"><u>[New] VideoTwitterConverter  Direct Media Conversion</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-your-feed-crafting-engaging-instagram-videos/"><u>[Updated] Elevate Your Feed  Crafting Engaging Instagram Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastery-over-cloud-expenses-cheapest-options-showcased/"><u>[Updated] Mastery Over Cloud Expenses  Cheapest Options Showcased</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/44cm5lplusd6zm65lql5qwt5zcr44gr44gr6zal55m644gv44km44gf44oh44k444k44or5yyw57kplus5pplus744od44kk44oz44oi44oe44ol44ol44ki44or44cn/"><u>「保険事業向けに開発されたデジタル化精査ポイントマニュアル」</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-embrace-the-future-facebook-video-autoplay/"><u>2024 Approved  Embrace the Future  Facebook Video Autoplay</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-insights-blending-visual-and-auditory-elements-in-windows-photos/"><u>2024 Approved  Expert Insights  Blending Visual & Auditory Elements in Windows Photos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/5-essential-strategies-to-avoid-a-dark-screen-during-obs-recordings-for-2024/"><u>5 Essential Strategies to Avoid a Dark Screen During OBS Recordings for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-flexicapture-cloud-comprehensive-end-user-license-agreement-and-usage-guidelines/"><u>ABBYY FlexiCapture Cloud: Comprehensive End-User License Agreement and Usage Guidelines</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-laut-top-rated-in-the-2024-idp-peak-matrix-evaluation-by-everest-group/"><u>ABBYY Laut: Top-Rated in the 2024 IDP Peak Matrix Evaluation by Everest Group</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-unterstutzt-den-testprozess-fur-volkwagens-entertainment-und-informationssysteme/"><u>ABBYY Unterstützt Den Testprozess Für Volkwagens Entertainment- Und Informationssysteme</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-unveils-the-power-of-smart-content-strategies-at-tech-summit-2018/"><u>ABBYY Unveils the Power of Smart Content Strategies at Tech Summit 2018</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-vantage-earned-trend-setter-title-at-kmworlds-2n1-trending-product-awards/"><u>ABBYY Vantage Earned 'Trend Setter' Title at KMWorld's 2N1 Trending Product Awards</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-advanced-text-recognition-technology-integrated-into-the-3m-360-encompass-system-revolutionizes-healthcare-documentation/"><u>ABBYY's Advanced Text Recognition Technology Integrated Into the 3M 360 Encompass System Revolutionizes Healthcare Documentation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-comprehensive-tutorial-mastering-automation-techniques-piece-by-piece/"><u>ABBYY's Comprehensive Tutorial: Mastering Automation Techniques Piece by Piece</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-top-financial-executive-neil-murphy-discusses-growth-opportunities/"><u>ABBYY's Top Financial Executive Neil Murphy Discusses Growth Opportunities</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/advancing-logistics-boost-efficiency-with-smart-automation-solutions/"><u>Advancing Logistics: Boost Efficiency with Smart Automation Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/amelioration-de-la-rpa-par-lintegration-dune-solution-dintelligence-procedurale-la-decouverte-abbyy/"><u>Amélioration De La RPA Par L'Intégration D'une Solution D'Intelligence Procédurale : La Découverte ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-lead-generation-with-cookiebot-technology/"><u>Automated Lead Generation with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-traffic-generation-with-cookiebot-the-efficient-way/"><u>Automated Traffic Generation with Cookiebot: The Efficient Way</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-with-cookiebot-enhance-your-digital-marketing-strategies/"><u>Automated with Cookiebot: Enhance Your Digital Marketing Strategies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boost-web-analytics-with-cookiebot-integration-solutions/"><u>Boost Web Analytics with Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-efficiency-mcdonalds-integration-of-abbyys-cutting-edge-ocr-into-their-mobile-app-features/"><u>Boosting Efficiency: McDonald's Integration of ABBYY's Cutting-Edge OCR Into Their Mobile App Features</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-healthcare-success-masterful-techniques-for-streamlining-referrals-and-bookings/"><u>Boosting Healthcare Success: Masterful Techniques for Streamlining Referrals and Bookings</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-online-engagement-with-cookiebot-technology-a-powerful-seo-partner/"><u>Boosting Online Engagement with Cookiebot Technology - A Powerful SEO Partner</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/clayton-c-peddy-leading-abbyy-as-the-esteemed-chief-information-security-officer/"><u>Clayton C. Peddy: Leading ABBYY as the Esteemed Chief Information Security Officer</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/comprehensive-guide-on-leveraging-process-intelligence-techniques/"><u>Comprehensive Guide on Leveraging Process Intelligence Techniques</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-personalization-enhance-your-website-with-smart-analytics/"><u>Cookiebot-Enabled Personalization: Enhance Your Website with Smart Analytics</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-marketing-automation/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics & Marketing Automation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-your-websites-analytics-with-advanced-tracking/"><u>Cookiebot-Enabled: Enhancing Your Website's Analytics with Advanced Tracking</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-optimizing-your-sites-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimizing Your Site's User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhancing-your-sites-interactivity-with-smart-personalized-tracking/"><u>Cookiebot: Enhancing Your Site's Interactivity with Smart, Personalized Tracking</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/doxio-and-abbyy-transformer-votre-management-de-fichiers-en-une-experience-innovante/"><u>Doxio & ABBYY: Transformer Votre Management De Fichiers en Une Expérience Innovante</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/elevating-user-navigation-emersons-integration-of-abbyy-cognitive-capture-for-superior-service-delivery/"><u>Elevating User Navigation: Emerson's Integration of ABBYY Cognitive Capture for Superior Service Delivery</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhancing-business-flexibility-through-bcr-and-relaxing-with-your-cold-blooded-companions-insights-from-the-abbyy-experts/"><u>Enhancing Business Flexibility Through BCR & Relaxing with Your Cold-Blooded Companions - Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-advice-performing-a-successful-chkdsk-scan-in-windows-a-detailed-walkthrough/"><u>Expert Advice: Performing a Successful Chkdsk Scan in Windows - A Detailed Walkthrough</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/fortschrittliche-rezeptverarbeitungsautomatisierung-durch-abbyy-neueste-entwicklungen-fur-apothekenmanagement/"><u>Fortschrittliche Rezeptverarbeitungsautomatisierung Durch ABBYY - Neueste Entwicklungen Für Apothekenmanagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-tongue-unveiling-star-wars-linguistic-wonders/"><u>Galaxy Tongue: Unveiling Star Wars Linguistic Wonders</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/harness-the-power-of-cookiebot-advanced-ai-tools-for-enhanced-seo-strategies/"><u>Harness the Power of Cookiebot: Advanced AI Tools for Enhanced SEO Strategies</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-100-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor 100 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/identity-verification-explained-exploring-its-importance-and-limitations-in-comprehensive-security-strategies/"><u>Identity Verification Explained: Exploring Its Importance and Limitations in Comprehensive Security Strategies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-amazonprimes-winning-tweets-of-the-year-2023/"><u>In 2024, AmazonPrime's Winning Tweets of the Year 2023</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fb-videos-made-quick-proximity-tricks-for-instant-uploaddownload/"><u>In 2024, FB Videos Made Quick  Proximity Tricks for Instant Upload/Download</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-itunes-recording-hacks-for-enhanced-videos/"><u>In 2024, ITunes Recording Hacks for Enhanced Videos</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/investissement-strategique-avec-abbyy-chez-marlin-equity-partners-une-approche-revolutionnaire/"><u>Investissement Stratégique Avec ABBYY Chez Marlin Equity Partners: Une Approche Révolutionnaire</u></a></li>
+<li><a href="https://techidaily.com/remove-reno-11f-5g-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Reno 11F 5G unlock screen</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/roboterunterstutzte-losungen-fur-verschiedene-altersgruppen-mit-abbyy-studie-erleichterung-auf-individuelle-weise/"><u>Roboterunterstützte Lösungen Für Verschiedene Altersgruppen Mit ABBYY Studie - Erleichterung Auf Individuelle Weise</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/securely-manage-and-transfer-funds-for-utilities-using-the-advanced-abbyy-mobile-payments-feature/"><u>Securely Manage and Transfer Funds for Utilities Using the Advanced ABBYY Mobile Payments Feature</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-setup-for-new-release-of-amd-radeon-v2410-video-card-software/"><u>Step-by-Step Setup for New Release of AMD Radeon V24.10 Video Card Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-clean-image-borders-on-canva/"><u>The Ultimate Guide to Clean Image Borders on Canva</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-7-strategies-for-delicious-food-vids/"><u>Top 7 Strategies for Delicious Food Vids</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/understanding-outbound-ip-addresses-insights-with-abbyy-solutions/"><u>Understanding Outbound IP Addresses: Insights with ABBYY Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unraveling-the-mystery-understanding-why-users-drop-out-of-onboarding-journeys/"><u>Unraveling the Mystery: Understanding Why Users Drop Out of Onboarding Journeys</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unveiling-abbyys-latest-apac-strategy-highlights-from-the-ai-summit-in-hong-kong-2e/"><u>Unveiling ABBYY's Latest APAC Strategy: Highlights From the AI Summit in Hong Kong, 2E</u></a></li>
+</ul></div>
