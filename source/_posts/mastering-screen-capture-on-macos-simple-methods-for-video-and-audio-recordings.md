@@ -1,7 +1,7 @@
 ---
 title: "Mastering Screen Capture on macOS: Simple Methods for Video and Audio Recordings"
-date: 2024-08-25 22:33:43
-updated: 2024-08-27 12:41:11
+date: 2024-08-30T11:09:21.330Z
+updated: 2024-08-31T11:09:21.330Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/73c8aa7288a20e6cbaea75d2d69b895c345ae8292d35b3d8b3e159cf26b59b05.jpg
@@ -55,6 +55,9 @@ QuickTime is far from perfect when you want to [record Mac screen](https://tools
 
 ![Download soundflower to record audio on mac](https://www.macxdvd.com/mac-video-converter-pro/article-image/download-soundflower.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 Download soundflower to record audio on mac
 
 **Step 4:** Open QuickTime Player and initiate the screen recording process after adjusting the sound recording. Go to File on the top bar and select New Screen Recording from the drop-down menu. 
@@ -85,6 +88,9 @@ If you are looking for a [free screen recorder for Mac](https://tools.techidaily
 
 ![record screen on mac with audio](https://www.macxdvd.com/mac-video-converter-pro/step-image/record-screen-audio.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 record screen on mac with audio
 
 **Step 2: Do some screen recording settings:** 
@@ -115,18 +121,31 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 [Free Online Screen Recorder with No Time Length Limit](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Record A Powerpoint Presentation with Audio and Video on Mac](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
  Best Mac Video Converters Review: Convert Any Video on Mac with Ease
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [Top 4 Best YouTube Screen Recorders to Easily Capture YouTube Videos in HD](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic3.jpg)
@@ -135,12 +154,18 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../image-style/new-seo/pic2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 [How to record videos in HD 1080p from Mac screen or webcam](https://tools.techidaily.com/macxdvd/products/)
 
 
 
 ![Digiarty Software](https://www.macxdvd.com/mac-video-converter-pro/../icon/logo.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
 ### Hot Products
@@ -149,6 +174,9 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Tips and Tricks
 
 * [DVD Topics >>](https://tools.techidaily.com/macxdvd/products/)
@@ -188,3 +216,47 @@ Apple, the Apple logo, Mac, iPhone, iPad, iPod and iTunes are trademarks of Appl
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-hashtags-with-leading-apps-on-fb-twitter-and-instagram/"><u>[New] In 2024, Mastering Hashtags with Leading Apps on FB, Twitter & Instagram</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-seamless-video-editing-on-windows-11-platform/"><u>[New] Seamless Video Editing on Windows 11 Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dissecting-and-defeating-dreadful-greenscreen-a-mac-editors-directive/"><u>[Updated] 2024 Approved  Dissecting & Defeating Dreadful Greenscreen  A Mac Editor's Directive</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-youtube-live-imagery-a-comprehensive-overview/"><u>[Updated] 2024 Approved  Mastering YouTube Live Imagery  A Comprehensive Overview</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-perfect-tunes-essential-music-guide-for-instagram-clips-for-2024/"><u>[Updated] Perfect Tunes  Essential Music Guide for Instagram Clips for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-introduces-alpha-release-scheme-offering-coders-first-look-at-new-features/"><u>ABBYY Introduces Alpha Release Scheme, Offering Coders First Look at New Features</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-ocr-top-weine-app-von-weltweitem-beliebtheit-auf-vivinos-plattform-abbyys-neueste-entwicklungen/"><u>Abbyy OCR: Top Weine App Von Weltweitem Beliebtheit Auf Vivinos Plattform – Abbyy's Neueste Entwicklungen</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/advancing-account-payables-the-critical-role-of-smart-content-knowledge-in-process-improvement/"><u>Advancing Account Payables: The Critical Role of Smart Content Knowledge in Process Improvement</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ai-ocrabbyy/"><u>AI-OCRに特化:トッパン・フォームズとABBYYが提供する革新的な請求書処理ソリューションの組み合わせ - 最新ニュース解析</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boost-web-analytics-effortlessly-with-the-power-of-cookiebot-technology/"><u>Boost Web Analytics Effortlessly with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/chip-vonburg-takes-on-the-role-of-chief-customer-officer-at-abbyy/"><u>Chip VonBurg Takes on the Role of Chief Customer Officer at ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-insights-enhance-your-sites-seo-effortlessly/"><u>Cookiebot-Driven Insights: Enhance Your Site's SEO Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhanced-personalization-boost-your-sites-user-experience/"><u>Cookiebot-Enhanced Personalization: Boost Your Site's User Experience</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effektives-monitoring-und-berichterstattung-fur-abbyy-flexicapture-optimierung-ihres-unternehmenserfolgs/"><u>Effektives Monitoring Und Berichterstattung Für ABBYY FlexiCapture: Optimierung Ihres Unternehmenserfolgs</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhancing-automation-intelligence-the-synergy-of-abbyy-and-blue-prism-in-transforming-digital-labor/"><u>Enhancing Automation Intelligence: The Synergy of ABBYY & Blue Prism in Transforming Digital Labor</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/erweiterte-funktionen-der-ediscovery-losung-von-deloitte-erhohen-effizienz-und-leistung/"><u>Erweiterte Funktionen Der eDiscovery-Lösung Von Deloitte Erhöhen Effizienz Und Leistung</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-audience-insights/"><u>Harnessing the Power of Cookiebot for Advanced Audience Insights</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/harnessing-the-power-of-cookiebot-for-seamless-user-tracking-and-personalization/"><u>Harnessing the Power of Cookiebot for Seamless User Tracking and Personalization</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-130-musicwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia 130 Musicwith/without a PC</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/how-governments-are-going-paperless-with-digital-identity-verification-solutions/"><u>How Governments Are Going Paperless with Digital Identity Verification Solutions</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-ensure-seamless-player-search-in-call-of-dutys-warzone-on-your-windows-system/"><u>How to Ensure Seamless Player Search in Call of Duty's Warzone on Your Windows System</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-chorus-climaxes-ultimate-hits-to-accompany-your-promise/"><u>In 2024, Chorus Climaxes  Ultimate Hits to Accompany Your Promise</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-complete-guide-to-help-you-choose-the-best-hdr-cameras/"><u>In 2024, Complete Guide to Help You Choose the Best HDR Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-tranquil-sleep-soundtrack-expertly-selected-voices/"><u>In 2024, Tranquil Sleep Soundtrack  Expertly Selected Voices</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/innovative-ai-driven-document-management-systems-offer-enhanced-streamlined-processing-solutions/"><u>Innovative AI-Driven Document Management Systems Offer Enhanced, Streamlined Processing Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/intelligente-losungen-fur-die-zukunft-wie-bosch-mit-abbyy-kooperation-optimiert/"><u>Intelligente Lösungen Für Die Zukunft - Wie Bosch Mit ABBYY Kooperation Optimiert</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/la-recente-evolution-des-fonctionnalites-de-finereader-14-dabbyy-support-extendu-pour-plus-de-formats-pdf/"><u>La Récente Évolution Des Fonctionnalités De FineReader 14 D'ABBYY: Support Extendu Pour Plus De Formats PDF</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/les-retours-sur-emploi-chez-abbyy-des-revelations-et-avantages-quotidiens/"><u>Les Retours Sur Emploi Chez ABBYY: Des Révélations Et Avantages Quotidiens</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/leveraging-the-power-of-cookiebot-in-your-seo-strategy/"><u>Leveraging the Power of Cookiebot in Your SEO Strategy</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimisation-des-procedures-de-reclamations-ebook-insightful-strategies-par-abbyy-efficacite-du-cycle-gestionnaire/"><u>Optimisation Des Procédures De Réclamations: EBook Insightful Strategies Par ABBYY | Efficacité Du Cycle Gestionnaire</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimize-and-track-with-cookiebot-power-elevate-your-online-presence-effectively/"><u>Optimize & Track with Cookiebot Power: Elevate Your Online Presence Effectively</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimized-with-the-power-of-cookiebot-technology/"><u>Optimized with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/ranking-the-top-5-instant-frame-recorder-apps-for-2024/"><u>Ranking the Top 5 Instant Frame Recorder Apps for 2024</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-spark-10-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Spark 10 Pro</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/revamped-phones-and-special-gifts-featuring-tips-by-mobile-experts-at-abbyy-blog/"><u>Revamped Phones & Special Gifts Featuring Tips by Mobile Experts at ABBYY Blog</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/streamline-your-data-capture-process-using-abbyys-ocr-sdk-for-efficient-document-analysis/"><u>Streamline Your Data Capture Process Using ABBYY's OCR SDK for Efficient Document Analysis</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/streamlining-workflows-seamless-abbyy-and-automation-anywhere-synchronization/"><u>Streamlining Workflows: Seamless ABBYY and Automation Anywhere Synchronization</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-vivo-t2-pro-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Vivo T2 Pro 5G Phones</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unveiling-the-leaders-in-modern-social-platforms-facebook-twitter-instagram-and-youtube/"><u>Unveiling the Leaders in Modern Social Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/utilizing-cookiebot-for-advanced-web-traffic-analysis-and-growth-optimization/"><u>Utilizing Cookiebot for Advanced Web Traffic Analysis and Growth Optimization</u></a></li>
+</ul></div>
