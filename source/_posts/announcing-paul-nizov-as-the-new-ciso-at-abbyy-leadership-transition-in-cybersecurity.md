@@ -1,22 +1,40 @@
 ---
 title: "Announcing Paul Nizov as the New CISO at ABBYY: Leadership Transition in Cybersecurity"
-date: 2024-08-25T23:03:51.795Z
-updated: 2024-08-26T23:03:51.795Z
+date: 2024-09-05T11:11:22.957Z
+updated: 2024-09-06T11:11:22.957Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5cb2e70fe5fc4984663e55071f50818b86ad28c6053861679577418a188e88c7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Announcing Paul Nizov as the New CISO at ABBYY: Leadership Transition in Cybersecurity
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Paul Nizov rejoint ABBYY au poste de Chief Information Security Officer
 
 20 avril 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Paul Nizov sera en charge de la stratégie opérationnelle et budgétaire liée à la sécurité.
 * Paul Nizov dispose de plus de 15 ans d’expérience dans les domaines des technologies, du juridique et du militaire aux États-Unis, au Moyen-Orient et en Asie.
 * Paul a participé à la mise en place et à la gestion de programmes de cybersécurité dans les secteurs de l’énergie, de la finance, de la santé et des technologies.
@@ -59,9 +77,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-recording.techidaily.com/new-a-comprehensive-look-at-stardew-and-ginger-isle/"><u>[New] A Comprehensive Look at Stardew and Ginger Isle</u></a></li>

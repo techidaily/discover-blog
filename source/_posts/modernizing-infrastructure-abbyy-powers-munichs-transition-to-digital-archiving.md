@@ -1,22 +1,46 @@
 ---
 title: "Modernizing Infrastructure: ABBYY Powers Munich's Transition to Digital Archiving"
-date: 2024-08-25T23:04:23.821Z
-updated: 2024-08-26T23:04:23.821Z
+date: 2024-09-05T11:11:23.456Z
+updated: 2024-09-06T11:11:23.456Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f14703ab2e75a5e3ef7cee5c0a7ee5ddd2895b6cfd7b5126052dee0bd06c1845.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Modernizing Infrastructure: ABBYY Powers Munich's Transition to Digital Archiving
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The City of Munich relies on ABBYY to digitise its building files
 
 July 09, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, a leading provider of document recognition, data capture and linguistic technologies and services, is supporting Munich, the capital of Bavaria, with the digitisation of building files in the Urban Planning and Building Regulations department. The goal of the project is to create a digital base for application processing, thus simplifying the processing of construction applications. The manual work involved in incoming building applications will be kept to a minimum by automatically digitising and classifying files, ensuring a higher throughput rate for application processing.
 
 The Urban Planning and Building Regulations department is the construction authority for Bavaria’s capital. In addition to urban renewal, urban development and land-use planning, the department is responsible for issuing building permits. In this capacity, the department deals with around 6,000 to 7,000 applications for building permits each year. To optimise the permit process, all relevant data is extracted from the incoming building files after digitisation and classification and is then transferred into the e-files. The City of Munich has set up a new working group for building file digitisation, where up to 3 million incoming pages of paper can be processed per year. The new ABBYY FlexiCapture for Mailrooms solution was connected to the e-file sub-module through an interface. Along with the relevant metadata, the scanned documents are then made available for digital use in PDF/A format.
@@ -72,9 +96,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://extra-skills.techidaily.com/new-navigating-virtual-meetings-tips-for-effectively-using-zoom-in-emails/"><u>[New] Navigating Virtual Meetings  Tips for Effectively Using Zoom in Emails</u></a></li>

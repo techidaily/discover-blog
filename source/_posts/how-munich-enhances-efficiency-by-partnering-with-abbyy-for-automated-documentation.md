@@ -1,22 +1,40 @@
 ---
 title: How Munich Enhances Efficiency by Partnering with ABBYY for Automated Documentation
-date: 2024-08-25T23:03:31.480Z
-updated: 2024-08-26T23:03:31.480Z
+date: 2024-09-05T11:11:22.635Z
+updated: 2024-09-06T11:11:22.635Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9332c7608a3b7c0a804f93bd3e8889a390304fedee62792e7be872d16bace959.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Munich Enhances Efficiency by Partnering with ABBYY for Automated Documentation
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The City of Munich relies on ABBYY to digitise its building files
 
 July 09, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, a leading provider of document recognition, data capture and linguistic technologies and services, is supporting Munich, the capital of Bavaria, with the digitisation of building files in the Urban Planning and Building Regulations department. The goal of the project is to create a digital base for application processing, thus simplifying the processing of construction applications. The manual work involved in incoming building applications will be kept to a minimum by automatically digitising and classifying files, ensuring a higher throughput rate for application processing.
 
 The Urban Planning and Building Regulations department is the construction authority for Bavaria’s capital. In addition to urban renewal, urban development and land-use planning, the department is responsible for issuing building permits. In this capacity, the department deals with around 6,000 to 7,000 applications for building permits each year. To optimise the permit process, all relevant data is extracted from the incoming building files after digitisation and classification and is then transferred into the e-files. The City of Munich has set up a new working group for building file digitisation, where up to 3 million incoming pages of paper can be processed per year. The new ABBYY FlexiCapture for Mailrooms solution was connected to the e-file sub-module through an interface. Along with the relevant metadata, the scanned documents are then made available for digital use in PDF/A format.
@@ -72,9 +90,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-friendly.techidaily.com/new-beyond-binary-boundaries-unveiling-metaverse-vs-multiverse-for-2024/"><u>[New] Beyond Binary Boundaries  Unveiling Metaverse V/S Multiverse for 2024</u></a></li>

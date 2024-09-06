@@ -1,12 +1,18 @@
 ---
 title: Customized Lead Generation with Cutting-Edge Cookiebot Technology
-date: 2024-08-25T23:02:27.901Z
-updated: 2024-08-26T23:02:27.901Z
+date: 2024-09-05T11:11:21.501Z
+updated: 2024-09-06T11:11:21.501Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4b1ffe0e9ed18703ac5b5f01f74dc018a2d14974522694c6300224ce7ee050ff.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Customized Lead Generation with Cutting-Edge Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,18 @@ February 13, 2020
 
 ![insurance document processing and opportunities in AI | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25401/11450_smm_blog_insurance-document-processing-and-the-opportunities-in-aiblog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Customer acquisition and retention are the essential drivers of insurance revenue and profit. Today’s insurers face a new breed of competitor who targets customer experience with smart technologies, such as AI, focused on removing friction from their interactions. As FinTechs have done in consumer banking, new InsureTechs transform customer experience through smart mobile apps, integrating the phone’s camera as an input channel, and collecting data to target personalized offerings. Competing digitally means targeting AI and smarter technology at removing friction both from customer experience and the processing that directly supports it. 
 
 We have already seen the adoption of Robotic Process Automation (RPA) in this industry, adopted mainly to automate repetitive, back office supporting processes. As RPA has reached wider adoption, insurers now are realizing that the bigger opportunity for this technology is to use bots at the _front line_ of customer engagement, where intelligent understanding and responding to customer needs pays off exponentially in revenue and profit. Targeting bots directly at removing friction from engagement may soon eclipse the back office as the focus of AI investment.
@@ -47,8 +65,20 @@ To better understand how to intensify Return on Experience (ROX) through deeper 
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -112,9 +142,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-9-top-tier-youtube-fitness-tips-to-captivate-audiences-movement/"><u>[New] 2024 Approved  9 Top-Tier YouTube Fitness Tips to Captivate Audience's Movement</u></a></li>

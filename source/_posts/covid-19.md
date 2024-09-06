@@ -1,7 +1,7 @@
 ---
 title: COVID-19と労働パターンの変革：新しい生活基準
-date: 2024-08-25T23:03:15.961Z
-updated: 2024-08-26T23:03:15.961Z
+date: 2024-09-05T11:11:22.404Z
+updated: 2024-09-06T11:11:22.404Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/668fe014e6bae21be4d1f17bf36923c523f3242cbf8f9156a716780e5d4eeb63.jpg
@@ -23,6 +23,12 @@ thumbnail: https://thmb.techidaily.com/668fe014e6bae21be4d1f17bf36923c523f3242cb
 
 ![working from home yes or no](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### より、生産的に仕事をこなせましたか？
 
 アンケートの結果によりますと、43%の人々は在宅勤務となり、より生産的に仕事ができるようになったと感じています。一方で32.6%の方々はあまり違いを感じておらず、21.8%の方々は、生産性が落ちたと感じられています。何名かは在宅勤務の複雑な心情をシェアして下さっています。
@@ -34,6 +40,12 @@ _“在宅でも、生産性を上げようと試みたが、労働時間が異�
 _“業務による。いくつかは良くなったし、いくつかは悪くなった…”_  
 _“それぞれ、いくつかの業務が当てはまる”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### モチベーションはどうですか。上がりましたか？
 
 36.2%のユーザは、モチベーションレベルは変わっていないと回答しています。ほぼ同割合で、35.4%のユーザが在宅勤務によって、モチベーションが上がったと回答しています。一方で、27％の方々はモチベーションが下がってしまったと回答しています。
@@ -41,7 +53,16 @@ _“それぞれ、いくつかの業務が当てはまる”_
 ![Levels of motivation remote compared to in office](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 労働時間に変化はありますか？
 
@@ -51,6 +72,12 @@ _“それぞれ、いくつかの業務が当てはまる”_
 
 ![Have you been working longer or shorter hours while working remotely compared to working in the office?](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 新型コロナウィルス流行前と比べ、43.2%の方々が在宅勤務で長時間働くようになったと答えています。一方で、27.3%の方々が働く時間が短くなったと回答しています。以下、いくつか回答例をシェアします。
 
 _“労働の境界がなくなり、長く働いてしまう。”_  
@@ -58,13 +85,21 @@ _“フルタイムの条件で在宅勤務をおこなうことは、全ての�
 _“日常が変わる前と比べての労働時間は、何とも言えないが、1つ言えることとして、在宅勤務となった今ではほとんどない、同僚や上司との時間を無駄にしていた活動が昔は多くあったことに気がついた。”_  
 _“オフィスで働くよりも、在宅勤務のほうが心地よく、よって長時間働くようになってしまった。”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### オフィスワークに戻るとなったとき、好ましい職場とはどんな条件でしょう？
 
 53%の回答者が在宅勤務とオフィスワークのどちらも選択できるような柔軟な環境が好ましいと考えています。多くの人が在宅勤務とオフィスワークの比率を半々か、もしくは数日だけオフィスへ通って大部分は在宅勤務が良いと考えています。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 利点は何でしょう?
 
@@ -74,10 +109,6 @@ _“オフィスで働くよりも、在宅勤務のほうが心地よく、よ�
 
 ![Advantages of remote work](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 また、以下、いくつか利点の回答例をシェアします。
 
 _“家で過ごすことは快適であり、素早い休憩を取ることが可能。ペットと外へ出て、新鮮な空気を吸うことも可能。窓を開けて、自然の音を聞き、リフレッシュ休憩が可能。蛍光灯やうるさい電話もなく、好きな音楽を流すことも可能。5時前に夕食の準備に取りかかることも、ランチ後に散歩することも可能。－こういった自分たちにとって大切な楽しみが増加。”_  
@@ -85,16 +116,15 @@ _“非効率なコミュニケーションが減少”_
 _“ガソリンや移動時間を浪費することなく、働くときには車を止めてと、より生産的に”_  
 _“家庭でより良い食事をとれるようになった。また、非常にシンプルな家事（例えば、花への水やり）をやりながら、もしくは家でくつろぎながら、電話会議をできる可能性が整った。”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### では、良くない点はどうでしょう？
 
 ![Disadvantages of remote work](https://static1.abbyy.com/abbyycommedia/29713/productivity-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 在宅勤務の良くない点ですが、アンケートによると、51.3%の方々が、家では気を散らすことが色々とあると回答しています。また、同僚とのコミュニケーションの欠如が38.9%とこれに続きます。そして、29.3%の方々は十分なPC環境を在宅勤務ではお持ちではないことを問題点としてあげられています。以下、在宅勤務には消極的な意見の抜粋となります。
 
@@ -109,9 +139,6 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 
 ![How has working from home affected your work life balance?](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 40.6%の方々が、仕事とリラクゼーションを1日の中で分散させ、計画することを好みましたが、24.8%の方々は仕事からリラクゼーションへの切り替えに問題を経験したと回答されました。
 
 ### ストレスはどうですか？
@@ -121,7 +148,10 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 ![How has working from home affected your stress](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ガジェットの使用、スクリーンを見る時間はどうなりましたか？
 
@@ -133,9 +163,6 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 
 ![What are preferred off-screen ways of relaxation](https://static1.abbyy.com/abbyycommedia/29717/productivity-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 最近話題の言葉、デジタルデトックスは21.9%の方々が実施したことがある、そして28.8%の人がガジェットを止めようとしていますが、失敗している人もいます。  
 また、宗教や精神修養のための瞑想、ヨガ、自己啓発のためのブログやポッドキャストをどのくらいの方がフォローされているか興味があったのですが、22.2%の方々が参加されているということがわかりました。以下が、名前の挙がったブログ、ポッドキャストとなります。お役に立てれば、幸いです（英語コンテンツとなりますが）。
 
@@ -145,7 +172,10 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 * [BrainHQ](https://www.brainhq.com/?v4=true&fr=y)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 回答者は?
 
@@ -156,6 +186,12 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

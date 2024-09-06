@@ -1,22 +1,46 @@
 ---
 title: "ABBYY Celebrates a 15%% Increase in Worldwide Earnings for Fiscal Year 2018: Insights From the Latest Financial Report"
-date: 2024-08-25T23:02:07.260Z
-updated: 2024-08-26T23:02:07.260Z
+date: 2024-09-05T11:11:21.179Z
+updated: 2024-09-06T11:11:21.179Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/473fc1ff0d4e4d5e905e125fcb0f58c3c26b7a5f7017365a21e0c4d6f492b770.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Celebrates a 15% Increase in Worldwide Earnings for Fiscal Year 2018: Insights From the Latest Financial Report
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Reports 15% Annual Global Revenue Growth in 2018
 
 March 06, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Delivering Content IQ Skills to Enterprise Customers a Major Success Driver_
 
 ABBYY, a global leader in enterprise content IQ technologies and solutions, today announced it achieved 15% revenue growth in 2018, building upon the momentum from an exceptional 2017\. ABBYY’s ability to deliver content IQ skills for the new digital workforce was one of the key growth drivers. The enterprise segment was another growth driver with substantial wins in the financial services, insurance, transportation and logistics, and legal sectors. As a result, the company grew significantly in all regions, with particularly strong performances recorded in the United States, Europe and Asia Pacific.
@@ -64,9 +88,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-cloud.techidaily.com/new-in-2024-reviewing-ingenuity-moto-z2s-intelligent-evolution/"><u>[New] In 2024, Reviewing Ingenuity  Moto Z2's Intelligent Evolution</u></a></li>

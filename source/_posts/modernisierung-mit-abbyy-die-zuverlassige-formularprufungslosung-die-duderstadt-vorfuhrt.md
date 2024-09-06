@@ -1,22 +1,40 @@
 ---
 title: "Modernisierung Mit ABBYY: Die Zuverlässige Formularprüfungslösung, Die Duderstadt Vorführt!"
-date: 2024-08-25T23:02:00.857Z
-updated: 2024-08-26T23:02:00.857Z
+date: 2024-09-05T11:11:21.081Z
+updated: 2024-09-06T11:11:21.081Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ab3bfec296887a8d448d8e35c0b03544ab7fa85c994173438d04396b799c480a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Modernisierung Mit ABBYY: Die Zuverlässige Formularprüfungslösung, Die Duderstadt Vorführt!
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY unterstützt Rezeptprüfstelle Duderstadt bei der Verarbeitung von Formularen für Krankenkassen
 
 13\. Januar 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, unterstützt jetzt die Rezeptprüfstelle Duderstadt GmbH (RPD) bei der Verarbeitung von Formularen für die Abrechnung von medizinischen Sachleistungen. Mithilfe der ABBYY Lösung digitalisiert der [Business Process Outsourcer (BPO)](https://www.abbyy.com/de/company/news/abbyy-unterstuetzt-rezeptpruefstelle-duderstadt-bei-der-verarbeitung-von-formularen-fuer-krankenkassen/# "BPOs und Outsourcing Dienstleister") die Papier-Formulare, extrahiert die Daten und wertet sie nach den Anforderungen seines Auftraggebers aus. Dank ABBYY konnte der Prozess weiter automatisiert und deutlich effizienter gestaltet werden.
 
 Die RPD bietet Krankenkassen und deren Verbänden im Rahmen ihres Auftrags Outsourcing-Dienstleistungen in den Bereichen Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten mit Datenaufbereitung sowie IT-Beratung an. Der BPO übernimmt dabei die Digitalisierung und Datenaufbereitung für verschiedene Krankenkassen. Zur optimierten Erfassung von Formularen nutzt die RPD jetzt ABBYY FlexiCapture. Um eine effiziente und transparente Verarbeitung zu ermöglichen, werden die Daten aus den Formularen mithilfe von ABBYYs Erfassungslösung automatisch extrahiert und direkt an die eigene Spezialsoftware der RPD übergeben. Dadurch können die Informationen schneller geprüft und aufbereitet werden. Dank der leistungsstarken ABBYY Funktionalitäten, unter anderem zur Sprachenerkennung, konnte die Lösung während der Testphase exakt für die verschiedenen Formular-Sprachen und Layouts trainiert werden. Die Erfassungslösung ersetzt hierbei die aufwendige manuelle Dateneingabe. Die RPD profitiert mit dem Einsatz von ABBYY nun von modernisierten und rationalisierten Prozessen.
@@ -32,6 +50,12 @@ ABBYY Europe ist ein Mitglied der ABBYY Gruppe und verantwortet Vertrieb und Mar
 
 _ABBYY, das ABBYY Logo, ADRT, FineReader, FlexiCapture und FlexiLayout sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber._
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über die Rezeptprüfstelle Duderstadt GmbH
 
 Die Rezeptprüfstelle Duderstadt GmbH wurde 1948 als Familienunternehmen gegründet und ist ein moderner Dienstleister für Krankenkassen und deren Verbände. Im Rahmen des zulässigen Outsourcings übernimmt die RPD verschiedenste Aufgabenbereiche, um die Krankenkassen bei der Durchführung ihrer Aufgaben zu unterstützen, darunter die Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten einschließlich Datenaufbereitung sowie IT-Beratung. Für effiziente, transparente und rechtskonforme Abläufe in den Abrechnungs- und Prüfsystemen setzt die RPD eigene Softwarelösungen ein.
@@ -73,9 +97,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://on-screen-recording.techidaily.com/new-essential-recorder-tools-the-8-best-lists-for-2024/"><u>[New] Essential Recorder Tools  The 8 Best Lists for 2024</u></a></li>

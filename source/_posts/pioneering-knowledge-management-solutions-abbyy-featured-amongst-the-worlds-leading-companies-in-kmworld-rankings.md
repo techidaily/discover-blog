@@ -1,22 +1,46 @@
 ---
 title: "Pioneering Knowledge Management Solutions: ABBYY Featured Amongst the World's Leading Companies in KMWorld Rankings"
-date: 2024-08-25T23:03:39.156Z
-updated: 2024-08-26T23:03:39.156Z
+date: 2024-09-05T11:11:22.770Z
+updated: 2024-09-06T11:11:22.770Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641c62a676cf0d7c5aa1dfbffa.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Pioneering Knowledge Management Solutions: ABBYY Featured Amongst the World's Leading Companies in KMWorld Rankings
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## KMWorld Names ABBYY among "100 Companies that Matter in Knowledge Management"
 
 March 07, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For the 10th year in a row, ABBYY®, a leading provider of technologies and solutions to action information, is named on KMWorld’s "100 Companies that Matter in Knowledge Management” list. The annual listing recognizes companies that exude innovation, ingenuity, resourcefulness, usefulness, collaboration, community and expertise and help their customers attain those qualities. ABBYY is recognized for enabling its customers to find, extract and action information by intelligent capture, analysis and understanding of data.
 
 “Being recognized consecutively for a decade among a panel of judges – our peers within the industry – is a testament to ABBYY’s commitment to developing solutions that significantly impact an organization and the importance of long-term relationships with partners and customers,” commented Bruce Orcutt, vice president of Product Marketing and Management at ABBYY NAHQ. “It’s interesting to note that the judges in 2007 stated that the companies on that year’s list stood out because of their role in creating, enhancing or defining a market, and that equally important, they demonstrated the quality of facile, agile planning and execution – that still describes ABBYY today.”
@@ -50,9 +74,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-hovers.techidaily.com/new-editing-excellence-archive-your-qanda/"><u>[New] Editing Excellence Archive  Your Q&A</u></a></li>

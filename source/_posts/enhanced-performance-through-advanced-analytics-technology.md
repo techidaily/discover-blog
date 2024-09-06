@@ -1,22 +1,40 @@
 ---
 title: Enhanced Performance Through Advanced Analytics Technology
-date: 2024-08-25T23:03:23.508Z
-updated: 2024-08-26T23:03:23.508Z
+date: 2024-09-05T11:11:22.520Z
+updated: 2024-09-06T11:11:22.520Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6a865e452463a91a0991eeba9d7367cf47a6e9f955045ec39458749fd03f02a9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Performance Through Advanced Analytics Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Le logiciel 3M 360 Encompass s’équipe de la reconnaissance de texte d’ABBYY
 
 23 mai 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Un kit de développement logiciel OCR va élargir le module de codage de 3M basé sur les données à l’hôpital_
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY, fournisseur leader de technologies et de solutions de reconnaissance de documents, de capture de données et linguistiques, annonce que le module de codage basé sur les données du logiciel 3M 360 Encompass intègrera prochainement la reconnaissance de texte des documents numérisés en tant qu’option d’extension. Pour ce faire, la division Health Information Systems de 3M utilisera la technologie OCR intégrée d’ABBYY, un acteur majeur au niveau mondial pour les technologies et les solutions de reconnaissance et de conversion de documents.
@@ -87,9 +105,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vp-tips.techidaily.com/new-in-2024-iphone-and-ios-a-beginners-approach-to-vr-videos/"><u>[New] In 2024, IPhone & IOS  A Beginner's Approach to VR Videos</u></a></li>

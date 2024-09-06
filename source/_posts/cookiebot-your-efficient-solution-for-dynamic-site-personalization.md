@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot: Your Efficient Solution for Dynamic Site Personalization"
-date: 2024-08-25T23:02:26.983Z
-updated: 2024-08-26T23:02:26.983Z
+date: 2024-09-05T11:11:21.479Z
+updated: 2024-09-06T11:11:21.479Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/facaba7a5fd4b37097e51780f00827156432b8b7f6935409750ab63148a1187d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: Your Efficient Solution for Dynamic Site Personalization
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Wholesale & Retail Trade | Invoice Processing
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY beschleunigt den Zahlungsverkehr der METRO AG Gesellschaften mit Großhandelskunden um bis zu 90%
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/183288.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 ## ABBYY beschleunigt den Zahlungsverkehr der METRO AG Gesellschaften mit Großhandelskunden um bis zu 90% 
@@ -25,10 +43,22 @@ Groß- und Einzelhandel | Rechnungsverarbeitung
 
 ![METRO Digital and ABBYY](https://static4.abbyy.com/abbyycommedia/36403/metro-digital-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Über den Kunden
 
 ![METRO Digital](https://static5.abbyy.com/abbyycommedia/36404/logo_metrodigital.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name    | METRO Digital                           |
 | ------- | --------------------------------------- |
 | Branche | Wholesale                               |
@@ -80,24 +110,18 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 
 [![Learn more about ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35821/vantage_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static2.abbyy.com/abbyycommedia/29440/10c-ecclesia-cover3-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

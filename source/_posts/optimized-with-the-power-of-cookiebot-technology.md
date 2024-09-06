@@ -1,22 +1,40 @@
 ---
 title: Optimized with the Power of Cookiebot Technology
-date: 2024-08-25T23:02:50.972Z
-updated: 2024-08-26T23:02:50.972Z
+date: 2024-09-05T11:11:21.902Z
+updated: 2024-09-06T11:11:21.902Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fed19fb5539928ceb1f098e4df501aac24d80c5bb6000047d745afbd7491bdcb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimized with the Power of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Goes Beyond the Hype – Shares How to Make Robots Smarter with Content Intelligence at AI Summit New York
 
 November 28, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/)®, a global provider of content intelligence services, today announced it will be among the leading strategists sharing practical lessons on how enterprises can use artificial intelligence technology to impact their business during the [AI Summit New York](https://theaisummit.com/newyork/ "AI Summit New York"), the world’s largest AI event for business. Taking place December 5-6, 2018, AI Summit New York focuses on actual AI solutions that are transforming business productivity.
 
 Anthony Macciola, Chief Innovation Officer, is presenting a session December 5 titled, “Making Enterprise AI Robots Smarter with Content Intelligence.” Demonstrations of its content intelligence solutions that digitize structured and unstructured data into information that can be used by AI-enabling technologies to deliver business value will be available at booth 504.
@@ -57,9 +75,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-capture.techidaily.com/new-2024-approved-essential-screen-recording-tips-for-windows-8-pros/"><u>[New] 2024 Approved  Essential Screen Recording Tips for Windows 8 Pros</u></a></li>

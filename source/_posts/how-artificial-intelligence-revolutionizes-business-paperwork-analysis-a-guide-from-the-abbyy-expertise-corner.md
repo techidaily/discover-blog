@@ -1,16 +1,28 @@
 ---
 title: How Artificial Intelligence Revolutionizes Business Paperwork Analysis - A Guide From the ABBYY Expertise Corner
-date: 2024-08-25T23:03:30.433Z
-updated: 2024-08-26T23:03:30.433Z
+date: 2024-09-05T11:11:22.620Z
+updated: 2024-09-06T11:11:22.620Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3c841d342bad4a1013bf8d86.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Artificial Intelligence Revolutionizes Business Paperwork Analysis - A Guide From the ABBYY Expertise Corner
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Turning Business Documents into Actionable Insights with AI
 
 December 14, 2017
@@ -19,13 +31,16 @@ December 14, 2017
 
 The rapid advancement in cognitive technologies is significantly impacting the way businesses transform their unstructured documents into actionable insights to achieve better business outcomes. The days are long gone when companies rely solely on OCR technology for converting business-critical documents into actionable information. ABBYY's Chief Innovation Officer Anthony Macciola shares insights into next era of customer relationships and why companies must smarten up with artificial intelligence (AI).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Human in the Loop
 
 Macciola believes that the on-going onslaught of AI and its integration in business will not remove the need for enterprises to have knowledge workers: “With all AI solutions, people with more advanced training are needed who understand the company’s core values in addition to the technology processes.” This is because people have the characteristics that AI solutions need, such as empathy, creativity, judgement and critical thinking skills. Therefore, the skilled worker will always be vital to the success of the organization.”
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What do customers want?
 
 The most appropriate mind-set for organizations, Macciola says, should be focusing on what customers are trying to do and adjusting to that. “Customers want a system to watch and learn what their knowledge workers are doing as part of their daily routines. They want a system that can then start recommending courses of action based on learned behavior. They also want the knowledge worker to be able to direct the system to automate from past recommendations.”
@@ -35,7 +50,16 @@ For Macciola, these insights point to machine learning and RPA. “RPA is likely
 “Consequently, once organizations have automated various tasks by adding a level of learned intelligence, they’re going to want to monitor and understand the impact those efforts are having on their organization. This will result in businesses and their workforces going through a material change over the next three to five years.”
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Adjusting to Disruption
 
@@ -46,7 +70,10 @@ The general workplace will result in more tasks being addressed by a system of r
 “Another skills shift will be that the workers’ role will shrink from a span of control and expertise standpoint. As the software gets smarter, its dependency on the workforce shrinks and the knowledge workers will become more narrowly focused from a role and responsibility standpoint.”
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Looking ahead
 
@@ -63,7 +90,10 @@ Macciola predicts industry will see significant change in three areas largely dr
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

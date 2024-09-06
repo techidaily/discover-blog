@@ -1,22 +1,58 @@
 ---
 title: "Abbyy OCR: Top Weine App Von Weltweitem Beliebtheit Auf Vivinos Plattform – Abbyy's Neueste Entwicklungen"
-date: 2024-08-25T23:01:48.721Z
-updated: 2024-08-26T23:01:48.721Z
+date: 2024-09-05T11:11:20.890Z
+updated: 2024-09-06T11:11:20.890Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a9719ddcbae5c52ddb9477f8674bda6f7443fbaaf23c9836dcb573723ce4b8e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Abbyy OCR: Top Weine App Von Weltweitem Beliebtheit Auf Vivinos Plattform – Abbyy's Neueste Entwicklungen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY OCR powert weltweit beliebteste Wein-App von Vivino
 
 23\. Mai 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien für Dokumentenerkennung, Data Capture und Linguistik, hat heute bekanntgegeben, dass [Vivino](https://www.vivino.com/), der Entwickler der weltweit am meisten heruntergeladenen Wein-App\*, ABBYY Technologie für Texterkennung (OCR) erfolgreich in sein Produkt integriert hat, um Informationen von Weinkarten in Restaurants zu erfassen. Bei der Weinbestellung können Restaurantbesucher mit der Vivino App ein Foto des Weinangebots machen und erhalten sofort nützliche Informationen, die ihnen bei der Wahl des passenden Weines helfen. Die integrierte ABBYY OCR-Technologie extrahiert den Text aus dem Foto. Damit wird auf Vivinos Datenbank für Bewertungen und Verkostungsnotizen von rund 12 Millionen Nutzern zugegriffen – das weltweit größte Weinverzeichnis.\*
 
 „Bei Wein gibt es eine Schwierigkeit: Über 75% der Weine werden nie durch Weinexperten bewertet, sodass Weintrinker bei der Auswahl nur wenige Informationen über die meisten Sorten besitzen. Hier helfen Vivinos Crowdsourcing-Bewertungen, die Millionen an Nutzern übermittelt haben, denn wir haben Bewertungen für fast jeden Wein auf der Welt”, sagt Torben Mottes, Vice President of Product Management, Vivino. „Und nicht nur das: Zusätzlich zu Details wie Weinsorten, Bewertungen und Nutzerkommentaren haben wir den Wein-Seiten in unserer App kürzlich eine Liste von Online-Händlern hinzugefügt, sodass Sie einen neuen Wein, den Sie in einem Restaurant kennengelernt haben, einfach erwerben können.“
@@ -76,9 +112,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vp-tips.techidaily.com/new-in-2024-elite-15-high-definition-action-recorders/"><u>[New] In 2024, Elite 15 High-Definition Action Recorders</u></a></li>

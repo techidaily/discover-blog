@@ -1,22 +1,40 @@
 ---
 title: Boost Web Analytics Effortlessly with the Power of Cookiebot Technology
-date: 2024-08-25T23:01:52.295Z
-updated: 2024-08-26T23:01:52.295Z
+date: 2024-09-05T11:11:20.935Z
+updated: 2024-09-06T11:11:20.935Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4820926913a4a1263a46714c8a07c6721c528103224c7dceab692252cbf067a0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boost Web Analytics Effortlessly with the Power of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Open-Sources NeoML, Machine Learning Library to Develop Artificial Intelligence Solutions
 
 June 16, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _The framework provides software developers with powerful deep learning and traditional machine learning algorithms for creating applications that fuel digital transformation._ 
 
 ABBYY, a Digital Intelligence company, today announced the launch of NeoML, an open-source library for building, training, and deploying machine learning models. Available now on GitHub, NeoML supports both deep learning and traditional machine learning algorithms. The cross-platform framework is optimized for applications that run in cloud environments, on desktop and mobile devices. Compared to a popular open-source library, NeoML offers 15-20% faster performance for pre-trained image processing models running on any device.\* The combination of higher inference speed with platform-independence makes the library ideal for mobile solutions that require both seamless customer experience and on-device data processing.
@@ -77,9 +95,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-share.techidaily.com/new-collaborative-video-creation-and-growth-tips-for-2024/"><u>[New] Collaborative Video Creation & Growth Tips for 2024</u></a></li>

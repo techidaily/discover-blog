@@ -1,12 +1,24 @@
 ---
 title: Master Image Management + Transform Contact Lists Into Excel-Compatible CSV Files - Tips From the ABBYY Team
-date: 2024-08-25T23:04:22.778Z
-updated: 2024-08-26T23:04:22.778Z
+date: 2024-09-05T11:11:23.442Z
+updated: 2024-09-06T11:11:23.442Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13a2ed7d3d473fc4b094f952faefa5141a38181bbb0354fc87e696c7a5f69650.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Master Image Management + Transform Contact Lists Into Excel-Compatible CSV Files - Tips From the ABBYY Team
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,14 +29,38 @@ December 11, 2018
 
 ![](https://static1.abbyy.com/abbyycommedia/26630/mobile-monday-61.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There are thousands of photos in phones, but most of us don’t know about useful features in standard Galleries. Today we’ll unleash their potential. We’ll also show how you can export CSV to Excel, and have fun with optical illusions.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iOS Tips: Managing Your Photos and Videos
 
 The Photos app on your iPhone is capable of much more than just displaying your snapshots. At the bottom of the screen, there sits a very useful pop-up menu.
 
 ![photos on iphone](https://static1.abbyy.com/abbyycommedia/26631/img_3875.png) ![share photos on iphone](https://static1.abbyy.com/abbyycommedia/26632/img_3874.png) ![manage pictures on ios](https://static1.abbyy.com/abbyycommedia/26633/img_3873.png) Let’s take a closer look at each of the tools.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Copy**
 
 The selected photo will be copied to the [clipboard](https://en.wikipedia.org/wiki/Clipboard%5F%28computing%29), from where you can paste it into Messages or Notes. Alas, not all apps support pasting pictures from the clipboard (the best way to find out is just try and paste a picture).
@@ -69,6 +105,12 @@ As an example, we will take the standard Gallery app pre-installed on popular Sa
 
 ![samsung gallery](https://static1.abbyy.com/abbyycommedia/26637/samsung1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Share**
 
 Just like in iOS, you can easily share links to media content with your friends, who will be able to view and download the respective files.
@@ -82,7 +124,10 @@ Select photos or videos that you want to share with someone, say, with your fami
 The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, videos or music directly to their TVs.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: Opening CSV Files in Excel**
 
@@ -99,10 +144,6 @@ The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, 
 
 Please don’t be put off by so many steps. These are just consecutive steps of the wizard, and they are quite logical. When you’re done, you will have acquired yet another useful data management skill :)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## **App of the Week: Kubic**
 
 If you like toying with optical illusions, you’ll like this app. Meet Kubic, a game topping the Puzzle Game charts in more than 20 countries. There’s an old adage saying that genius lies in simplicity. This game is very simple, with uncluttered design and beautifully drawn cube compositions. But the puzzles are quite fiendish.
@@ -110,15 +151,15 @@ If you like toying with optical illusions, you’ll like this app. Meet Kubic, a
 ![kubic app](https://static1.abbyy.com/abbyycommedia/26638/img_3879.png)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Kubic provides a good workout for your brain and encourages abstract thinking. The app includes a big collection of visual tricks to deceive your eyes. The impossible geometrical shapes may seem realistic enough, but just when you expect everything to fall into place, you realize that it’s just an optical illusion.
 
 ![creativity](https://static1.abbyy.com/abbyycommedia/26639/img_3881.png)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/br/app/kubic/id1115010672?l=en) and [Android](https://play.google.com/store/apps/details?id=com.appsolutegames.kubic&hl=ru).
 
 That’s all from us for today. Until next Monday!
@@ -127,9 +168,6 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

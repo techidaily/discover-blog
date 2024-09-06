@@ -1,7 +1,7 @@
 ---
 title: "[公式] Digiarty Software, Incの最終ユーザー使用契約内容解説"
-date: 2024-08-30T11:09:38.234Z
-updated: 2024-08-31T11:09:38.234Z
+date: 2024-09-05T11:11:20.662Z
+updated: 2024-09-06T11:11:20.662Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c1304de3ac8c4843a110a218e6.jpg
@@ -9,12 +9,24 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
 ## [公式] Digiarty Software, Incの最終ユーザー使用契約内容解説
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ライセンス許諾条項
 
 本契約書の条件に従い、Digiarty Software, Incは利用者（個人）に対して1台のデバイスでソフトウェアをダウンロード/インストール/アクティブにする権利（限定的/撤回可能/非包括的/譲渡負荷）を個人利用のみが目的（非営利目的）であることを前提に譲渡することとします。Digiarty Softwareからコマーシャルまたはビジネスライセンスを購入している場合は営利目的であっても権利を譲渡することとします。他の人とソフトウェアを共有するまたはソフトウェアのコンテンツを他の人に見せる行為はライセンス侵害に当たります。事前にDigiarty Softwareからマルチユーザライセンスを購入していない限り、ソフトウェアをネットワーク上にアップするまたは複数のユーザに提供することは禁じられています。 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ライセンスの制限
 
 1\. 利用者はソフトウェアやドキュメントのいかなる部分についても自身または他人に改造/変更/解読/サブライセンス/貸出/リース/ローンさせてはならず、またこれに同意することとします。
@@ -36,28 +48,34 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
  9\. ライセンシーは、ソフトウェア内のいかなるエフェクト、音楽トラック、素材、画像、動画についても、商業目的または本契約で規定されている以外の方法で使用してはならないこととします。
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 期間
 
 契約は終了されるまで継続します。利用者は全てのコピーと共にソフトウェアを破棄することで契約を終了することができます。本契約内容が順守されなかった場合、自動的に契約は終了となり契約の効果は失効します。利用者はライセンスの終了後即座に全てのコピーと共にソフトウェアを破棄し、その使用を停止することとします。
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### ソフトウェア：無保証
 
 ソフトウェアはライセンス所有者に「そのままの状態」で提供されます。ライセンサーやライセンサーサプライヤ、関連会社、代理店、社員がその利用や性能に関して保証するものではありません。利用者はDigiartyソフトウェアの使用に伴うリスクは、法律が許可する範囲において利用者にのみにあることまた品質や性能、正確性に伴う全てのリスクも利用者にあることを認めまたこれに同意することとします。Digiarty Softwareや認可された代表者によって口頭か書面によって与えられたいかなる情報やアドバイスもこれを保証することにはならないこととします。
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### カバーCD
 
 雑誌に付随して発行された各種カバーCDで、本ソフトウェアを複製、配布（評価用コピーのみ）することは認められます。ただし、CD付きの雑誌をDigiartyに送付する必要があります。
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 責任の制限
 
@@ -66,7 +84,10 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 利用者により作成されたコンテンツ
 

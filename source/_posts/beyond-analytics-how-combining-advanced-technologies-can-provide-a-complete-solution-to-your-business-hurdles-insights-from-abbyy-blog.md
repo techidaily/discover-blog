@@ -1,16 +1,28 @@
 ---
 title: "Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog"
-date: 2024-08-25T23:02:17.425Z
-updated: 2024-08-26T23:02:17.425Z
+date: 2024-09-05T11:11:21.332Z
+updated: 2024-09-06T11:11:21.332Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/20ab7f66584fa785dda09306687fe5514b5df7248e5883b6a60111ac7e9c70d6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Business Intelligence & Process Mining Alone Won’t Solve Your Business Problems
 
 ###### Ryan Raiker
@@ -19,6 +31,12 @@ November 21, 2019
 
 ![Why Business Intelligence & Process Mining Alone Won’t Solve Your Business Problems | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25392/11245_smm_blog_why-business-intelligence-process-mining-alone-won-t-solve-your-business-problems_blog_934x400.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 You might rely on Business Intelligence systems for monitoring operations and performance, but when metrics fall outside the optimal range, how do you identify the cause? How do you tell exactly which process is underperforming, why it is happening, and where you should take corrective action?
 
 It might seem that BI fulfills the same needs that Process Mining does — that is they are both helping businesses achieve better performance. Although, the hidden flaw in BI is the assumption that business processes are always known and are happening as prescribed. We all wish that were the case, but we know from our experiences, that even the most well-defined operations don’t always go as planned. When these deviations happen, BI can show you what happened (i.e. the accounting department repeated step xxx 4 times) but struggles to answer the real question we need to be answered: why. Business leaders then try to solve performance issues by relying on intuition and understanding that normally comes from their personal interaction with the process. What they need is a means to look at the underlying process objectively. People only see the process from their own eyes. Some issues can’t be uncovered or are completely missed by BI tools and the business users, they could be in between teams, or in other areas where individuals don’t know about them. The secrets are in the data.
@@ -39,8 +57,20 @@ The good news is that many of these products, including Timeline, offer free tri
 
 ![](https://static4.abbyy.com/abbyycommedia/35293/ryanraiker-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ryan Raiker
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -104,9 +134,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-maximizing-video-sharing-adding-imovie-clips-to-vimeo/"><u>[New] 2024 Approved  Maximizing Video Sharing  Adding iMovie Clips to Vimeo</u></a></li>

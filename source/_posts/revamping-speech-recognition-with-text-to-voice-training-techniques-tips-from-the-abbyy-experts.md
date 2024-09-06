@@ -1,12 +1,18 @@
 ---
 title: Revamping Speech Recognition with Text-to-Voice Training Techniques - Tips From the ABBYY Experts
-date: 2024-08-25T23:02:03.052Z
-updated: 2024-08-26T23:02:03.052Z
+date: 2024-09-05T11:11:21.116Z
+updated: 2024-09-06T11:11:21.116Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755652a56d2cc4cf20f4740048.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Revamping Speech Recognition with Text-to-Voice Training Techniques - Tips From the ABBYY Experts
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,6 +29,12 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 Even though smartphone voice assistants are useful for helping with routine tasks, sometimes you just can’t talk. Today, we’ll show you how to text your assistant. We’ll also talk about re-recognition in FineScanner and do some voice training.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: Texting Siri** 
 
 While you might not be able to have a truly meaningful conversation with Apple’s voice helper, it still manages to perform its functions well. You don’t have to talk to her using your voice though: you can input your queries via text. This might be useful when you are stuck in public transport or in a meeting. By default, this function is turned off. However, enabling it is easy.
@@ -35,12 +47,21 @@ Don’t forget to select the appropriate reply mode for Siri so that you don’t
 
 ![siri settings](https://static1.abbyy.com/abbyycommedia/26890/golosovoy-vvod-dlya-siri.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 To have a chat with Siri, tap and hold either the **Home** button (on devices that have one) or the side button. If you want to have an audio conversation, don’t forget to check whether long press is enabled: **Settings** → **Siri &** Search → Press Side (Home) Button for Siri. Now, when you call up your digital assistant by saying **Hey Siri!**, she’ll be waiting for voice commands only and won’t reply to text queries.
 
 By the way, Siri can also be used with FineScanner and TextGrabber. For example, you can use voice commands to [open a document in FineScanner](https://tools.techidaily.com/abbyy/products/) or [recognize your last gallery image in TextGrabber](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Android Tip: Texting Google Assistant** 
 
@@ -51,7 +72,10 @@ Enabling keyboard input is easy: call up your assistant using a long press of th
 ![google assistant](https://static1.abbyy.com/abbyycommedia/26891/google-assistent.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Google have also made an interesting feature available for Pixel 2 and 3 owners. On these devices, you can also activate the Assistant by lightly squeezing the phone in your hand (i.e. by pressing down on both sides simultaneously).
 
@@ -61,12 +85,6 @@ In one of the recent FineScanner updates, we have added an offline text recognit
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26892/abbyy-finescanner.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **App of the Week: Vanido** 
 
 We would recommend Vanido to karaoke enthusiasts or people planning to take up singing as more than just a hobby.
@@ -77,15 +95,15 @@ _Try if you dare_.
 
 ![voice training on iphone](https://static1.abbyy.com/abbyycommedia/26893/prilozhenie-dlya-trenirovki-golosa.jpg) ![karaoke app ios](https://static1.abbyy.com/abbyycommedia/26894/kak-nauchitsya-pet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 That’s all from us for today. Until next time!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

@@ -1,22 +1,46 @@
 ---
 title: ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden
-date: 2024-08-25T23:02:12.549Z
-updated: 2024-08-26T23:02:12.549Z
+date: 2024-09-05T11:11:21.258Z
+updated: 2024-09-06T11:11:21.258Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a570e502a336cc42130adb602.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neue ‚Real-Time‘ Texterkennung von ABBYY verspricht gesteigertes digitales Kundenerlebnis
 
 11\. April 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _„Point and Capture“- Toolkit ermöglicht sofortige Verwendung von Textinformationen, die direkt vom Vorschaubild von Smartphone- und Tablet-Kameras erfasst werden_
 
 ABBYY Europe, ein führender globaler Anbieter von Technologien und Lösungen zur Informationsverarbeitung, kündigt heute die Verfügbarkeit seiner neuen Real-Time Recognition Technologie an. Diese ermöglicht eine sofortige Extraktion von Text aus Dokumenten und Objekten, die im Live-Videostream von Smartphones und anderen Mobilgeräten betrachtet werden. Die Echtzeit-Texterkennung von ABBYY bietet eine einfache und unmittelbare Verwendung des erfassten Textes in einer Vielzahl von Mobilanwendungen – von reaktionsschnellen Kundenservice-Apps über automatisierte Unternehmensprozesse bis hin zu komfortablen Verbraucheranwendungen.
@@ -84,9 +108,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://video-screen-grab.techidaily.com/new-decoding-macbook-airs-screen-capture-a-detailed-walkthrough-guide/"><u>[New] Decoding MacBook Air's Screen Capture  A Detailed Walkthrough Guide</u></a></li>

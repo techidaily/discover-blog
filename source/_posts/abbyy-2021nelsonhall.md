@@ -1,22 +1,46 @@
 ---
 title: 「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析
-date: 2024-08-25T23:02:05.166Z
-updated: 2024-08-26T23:02:05.166Z
+date: 2024-09-05T11:11:21.146Z
+updated: 2024-09-06T11:11:21.146Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a8efd832e4ff850ed2946c105917f658a3e5ec7d74782a26831b6d30a49981c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY社、世界有数のアナリスト企業NelsonHall社の 「Process Discovery & Mining NEAT Assessment 2021」でリーダーの評価を獲得
 
 12月16日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、世界有数のアナリスト企業であるNelsonHall社の「Process Discovery & Mining NEAT Assessment 2021（2021年のプロセスディスカバリーとプロセスマイニングのNEATベンダー評価）」においてリーダーの評価を獲得したことを発表しました。デジタルオペレーションの変革を専門とするNelsonHall社は、戦略的ソーシングマネージャーが、多様な基準や事業状況でベンダーのパフォーマンスを評価し、プロセスマイニングの具体的な能力、デスクトッププロセス検出、プロセス変革を計画および推進する能力において最も優れたベンダーを見極められるようNEAT評価ツールを作成しています。
 
 ABBYY社のCMOを務めるScott Opitzは、次のように述べています。
@@ -27,6 +51,12 @@ _ABBYY社のCMOを務めるScott Opitzは、次のように述べています_
 
 _![](https://static1.abbyy.com/abbyycommedia/34891/pdm-neat-accelerate-process-change-final.png?width=848&height=848)_
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY社は、将来的な顧客の要件を満たすことができる点と、すぐに利益をもたらす能力の点で比較評価され、業界でトップグループに位置づけられました。主な評価ポイントは、提供する製品の成熟度、提供能力、顧客が得られる利益、顧客とのパートナーシップ、革新を進めるメカニズム、契約期間を通じて顧客のビジネスをどの程度サポートしているのかなどが挙げられています。
 
 「ABBYY社は、ネイティブのプロセスマイニングとタスクマイニングの機能を備え、2つの機能を緊密に統合した非常に希少なプラットフォームを提供しています。ユーザーは360度全方位からの正確なデータ把握によって複数のレベルでビジネスプロセスを理解し、業務変革を計画することができます。ABBYY社がリーダーに位置付けられている理由は、これらの機能と同社の業務変革支援に向けた投資が大きな要因です」
@@ -72,9 +102,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://tiktok-videos.techidaily.com/new-15-groundbreayer-tiktok-challenges-to-master-now/"><u>[New] 15 Groundbreayer TikTok Challenges to Master Now</u></a></li>

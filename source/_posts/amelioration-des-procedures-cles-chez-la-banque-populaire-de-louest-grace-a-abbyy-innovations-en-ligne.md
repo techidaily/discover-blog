@@ -1,22 +1,46 @@
 ---
 title: Amélioration Des Procédures Clés Chez La Banque Populaire De L'Ouest Grâce À ABBYY - Innovations en Ligne
-date: 2024-08-25T23:03:04.212Z
-updated: 2024-08-26T23:03:04.212Z
+date: 2024-09-05T11:11:22.092Z
+updated: 2024-09-06T11:11:22.092Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2077f1c448ea137a042adda99cddc314210e831040b4d1625093a313f8396691.JPG
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amélioration Des Procédures Clés Chez La Banque Populaire De L'Ouest Grâce À ABBYY - Innovations en Ligne
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY contribue à l’optimisation de processus métiers clés de la Banque Populaire de l’Ouest
 
 19 janvier 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Le traitement automatisé des documents modernise la gestion des dossiers crédits et successions**  
   
 ABBYY Europe, acteur majeur de la reconnaissance de documents, de la capture de données et des technologies linguistiques, annonce aujourd’hui avoir mené avec succès deux projets documentaires stratégiques pour la Banque Populaire de l’Ouest, une des maisons mère de BPCE, deuxième groupe bancaire en France. Ces projets ont été mis en place grâce à ADOC Solutions, un partenaire certifié « GOLD » des solutions ABBYY.
@@ -76,9 +100,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://digital-screen-recording.techidaily.com/new-best-low-lag-techniques-for-efficient-screen-snaps-for-2024/"><u>[New] Best Low-Lag Techniques for Efficient Screen Snaps for 2024</u></a></li>

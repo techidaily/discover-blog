@@ -1,12 +1,18 @@
 ---
 title: Leverage Cookiebot Technology for Enhanced Online Engagement
-date: 2024-08-25T23:04:19.616Z
-updated: 2024-08-26T23:04:19.616Z
+date: 2024-09-05T11:11:23.387Z
+updated: 2024-09-06T11:11:23.387Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81962cec51e81800c7f637654.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leverage Cookiebot Technology for Enhanced Online Engagement
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ July 23, 2019
 
 ![Mobile is the magic word for Banks. Isn't it? | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25410/10745_smm_blog_mobility-is-the-magic-word-for-banks-or-is-itblog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Smartphones are smarting up the banking business. Nearly half of mobile users in the US use mobile banking, as stated bythe market research company [eMarketer](https://www.emarketer.com/). And this large audience is only becoming broader by the day. If in 2017, the number of US mobile banking users stood at 108.5 million, last year it climbed to 115.6 million, which represents 49.2% of mobile users in the US and indicates a 6.6% year-over-year growth rate.Moreover, mobile banking is especially popular amongst the younger generations aged between 18 and 34 (51%). eMarketer estimates that the number of millennial mobile banking users in the US reached 50.3 million in 2018.
 
 The increasing popularity of mobile banking app usage amongst US consumers was also confirmed by Citi's 2018 Mobile Banking Study of 2,000 American adults, which revealed that banking apps are the third most popular apps among consumers after social media and weather apps. “Visiting a bank branch is so 90s” claims one of the latest mobile banking start-ups in one of their campaigns. This receives definitely confirmation by the 91% of Citi’s study participants who prefer to use a mobile banking app over visiting a bank branch. Furthermore, the average mobile banking app usage increased from seven days a month in 2017 to nine days a month in 2018.
@@ -40,8 +52,20 @@ A smooth mobile account opening process does not only enable banks to speed up c
 
 ![Marlene Wolfgruber ABBYY](https://static4.abbyy.com/abbyycommedia/25708/marlenewolfgruber-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Dr. Marlene Wolfgruber
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -105,9 +129,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-realtime-recording-arena/"><u>[New] 2024 Approved  RealTime Recording Arena</u></a></li>

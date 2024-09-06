@@ -1,12 +1,24 @@
 ---
 title: Erhöht Die Effizienz Ihrer Metro AG Geschäftsprozesse Mit ABBYY – Beschleunigen Sie Zahlungswege Um Bis Zu 90%%!
-date: 2024-08-25T23:02:34.440Z
-updated: 2024-08-26T23:02:34.440Z
+date: 2024-09-05T11:11:21.638Z
+updated: 2024-09-06T11:11:21.638Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f4d45de0f56404a9b7904a53.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Erhöht Die Effizienz Ihrer Metro AG Geschäftsprozesse Mit ABBYY – Beschleunigen Sie Zahlungswege Um Bis Zu 90%!
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +29,20 @@ thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Success](https://static1.abbyy.com/abbyycommedia/33677/news-success.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Dank intelligenter Automatisierung der Rechnungsverarbeitung konnte die METRO AG ihre Produktivität deutlich steigern und vermehrt Kundenvorteile bieten**
 
 METRO Digital hat seinen Rechnungsverarbeitungsprozess mit Hilfe der intelligenten Automatisierungslösungen von ABBYY umgestellt und [dadurch die Bearbeitung von Kundenrechnungen um bis zu 90 % beschleunigt](https://tools.techidaily.com/abbyy/products/). Zuständig für die Digitalisierungs-Initiativen der METRO AG, einem internationalen Großhandelsunternehmen das mit 17 Millionen Kunden in mehr als 30 Ländern im Hotel-, Restaurant- und Gaststättengewerbe tätig ist, ist METRO Digital nun in der Lage, die Rechnungsbearbeitung weltweit von bis zu zwei Tagen auf etwa eine Stunde zu beschleunigen. Durch die schnellere Begleichung von Rechnungen können Käufer Kundenvorteile wahrnehmen und zur schnelleren Umsatzsteigerung des Unternehmens beitragen.
@@ -34,7 +58,10 @@ _Stefan Rödder, Product Owner bei METRO Digital_
 „Wir freuen uns, dass wir METRO bereits seit mehreren Jahren auf dem Weg in die digitale Zukunft begleiten dürfen“, sagt Neil Murphy, Senior Vice President EMEA Sales. „Als Vorreiter in der digitalen Transformation im Großhandel hat METRO Digital eine ganze Branche revolutioniert. Wir sind stolz darauf, ein Technologiepartner zu sein, der mit seinen intelligenten Lösungen der Prozessautomatisierung die Qualitätsansprüche und Erwartungen unserer Kunden übertreffen kann."
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -47,20 +74,15 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Pressekontakt
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_
@@ -68,7 +90,10 @@ _ABBYY_
 [bianca.stupp@abbyy.com](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über METRO Digital
 
