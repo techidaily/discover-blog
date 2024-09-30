@@ -1,24 +1,12 @@
 ---
 title: MacX Video Converter Pro - 詳細なテクニカルスペックと互換性情報
-date: 2024-09-05T11:11:20.383Z
-updated: 2024-09-06T11:11:20.383Z
+date: 2024-09-27T17:01:54.658Z
+updated: 2024-09-30T17:54:28.502Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/12e208bbd75085a265128c07333cb07b6d6f82e507abb3ab33415abcfb3911f5.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## MacX Video Converter Pro - 詳細なテクニカルスペックと互換性情報
 
 ## 技術仕様
@@ -28,19 +16,11 @@ thumbnail: https://thmb.techidaily.com/12e208bbd75085a265128c07333cb07b6d6f82e50
 * [![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/nav-icon01.png)入力](https://www.macxdvd.com/mac-video-converter-pro/#input)
 * [![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/nav-icon02.png)出力](https://www.macxdvd.com/mac-video-converter-pro/#output)
 * [![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/nav-icon03.png)動作環境](https://www.macxdvd.com/mac-video-converter-pro/#platform)
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * [![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/nav-icon04.png)言語](https://www.macxdvd.com/mac-video-converter-pro/#languages)
 
 [無料ダウンロード](https://tools.techidaily.com/macxdvd/products/) [無料ダウンロード](https://tools.techidaily.com/macxdvd/products/) 
 
  Windows 11/macOS Ventura対応！
-
-
 
 対応 HD 動画  
 入出力形式  
@@ -48,12 +28,6 @@ thumbnail: https://thmb.techidaily.com/12e208bbd75085a265128c07333cb07b6d6f82e50
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/images/tech-specs/d-icon01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 高解像度動画
 
 4K 動画
@@ -105,8 +79,6 @@ AVI, MPEG, WMV, MP4, FLV, F4V, H.264/MPEG-4, DivX, XviD, MOV, RM, RMVB, VOB, ASF
 
 JPG, PNG, BMP
 
-
-
 対応   
 汎用出力形式  
 【保存可能】
@@ -123,36 +95,18 @@ TS HD, MTS, MOV HD, AVC HD, MKV HD, MPEG HD, AVI HD, WMV HD
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/images/tech-specs/d-icon03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ウェブ共有
 
 YouTube (MPEG4, MP4, FLV), Facebook (MP4, MOV, AVI, FLV), Vimeo (MP4)
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/images/tech-specs/d-icon04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 VOB
 
 NTSC, PAL
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/images/tech-specs/d-icon05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 音声 & 画像
 
 MP3, AAC, iPhone Ringtone, AC3, WMA, AIFF, CAF, DTS, OGG, AU, RA, WAV, FLAC, ALAC, PNG
@@ -167,12 +121,6 @@ Apple デバイス
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/d-icon04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 iPhone
 
 iPhone 3G/3GS
@@ -211,18 +159,6 @@ iPad Mini 2/3/4/5
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/d-icon06.png)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Others
 
 Apple TV
@@ -249,12 +185,6 @@ Android タブレット
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/d-icon07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Microsoft
 
 Microsoft WP8 Pad
@@ -310,18 +240,10 @@ ZEN
 
 MP3, AAC, AC3, PNG
 
-
-
 動作環境
 
 ![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/d-icon10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Windows 11(32 & 64 bit)
 
 Windows 10
@@ -362,8 +284,6 @@ Snow Leopard
 
 Mac OS X Leopard
 
-
-
 対応言語
 
 _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/en.jpg) English_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/fr.jpg) French_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/de.jpg) German_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/it.jpg) Italian_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/jp.jpg) Japanese_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/sp.jpg) Spanish_ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/images/tech-specs/cn.jpg) Chinese_
@@ -374,8 +294,6 @@ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/image
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -383,4 +301,23 @@ _![](https://www.macxdvd.com/mac-video-converter-pro/../mac-dvd-ripper-pro/image
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-innovative-techniques-crafting-unique-boomerangs-on-snapchat/"><u>[New] In 2024, Innovative Techniques Crafting Unique Boomerangs on Snapchat</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/2024dvdwindows11-and-mac/"><u>「2024年の最適なDVDリッピングツール：Windows11 & Mac対象におすすめ総選挙」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-macx-online-video-extractor-free-and-easy-youtube-to-mp4-transformation/"><u>Download MacX Online Video Extractor - Free & Easy YouTube to MP4 Transformation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/heaviest-inflight-lifters-unveiled-top-10-list/"><u>Heaviest Inflight Lifters Unveiled - Top 10 List</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/the-common-mistakes-that-prevent-longer-iphone-battery-life-avoid-them-at-all-cost/"><u>The Common Mistakes That Prevent Longer iPhone Battery Life - Avoid Them at All Cost!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-srt-download-blueprint-from-youtube/"><u>The Ultimate SRT Download Blueprint From YouTube</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-10-unforgettable-romance-films-free-downloads-from-iconic-hollywood/"><u>Top 10 Unforgettable Romance Films: Free Downloads From Iconic Hollywood</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wide-leaders-in-short-video-download-hubs-free/"><u>Worldwide Leaders in Short Video Download Hubs (FREE)</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

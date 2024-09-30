@@ -1,28 +1,16 @@
 ---
 title: "Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog"
-date: 2024-09-05T11:11:21.332Z
-updated: 2024-09-06T11:11:21.332Z
+date: 2024-09-27T20:31:54.723Z
+updated: 2024-09-30T21:09:50.607Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/20ab7f66584fa785dda09306687fe5514b5df7248e5883b6a60111ac7e9c70d6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Beyond Analytics: How Combining Advanced Technologies Can Provide a Complete Solution to Your Business Hurdles | Insights From ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Business Intelligence & Process Mining Alone Won’t Solve Your Business Problems
 
 ###### Ryan Raiker
@@ -31,12 +19,6 @@ November 21, 2019
 
 ![Why Business Intelligence & Process Mining Alone Won’t Solve Your Business Problems | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25392/11245_smm_blog_why-business-intelligence-process-mining-alone-won-t-solve-your-business-problems_blog_934x400.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You might rely on Business Intelligence systems for monitoring operations and performance, but when metrics fall outside the optimal range, how do you identify the cause? How do you tell exactly which process is underperforming, why it is happening, and where you should take corrective action?
 
 It might seem that BI fulfills the same needs that Process Mining does — that is they are both helping businesses achieve better performance. Although, the hidden flaw in BI is the assumption that business processes are always known and are happening as prescribed. We all wish that were the case, but we know from our experiences, that even the most well-defined operations don’t always go as planned. When these deviations happen, BI can show you what happened (i.e. the accounting department repeated step xxx 4 times) but struggles to answer the real question we need to be answered: why. Business leaders then try to solve performance issues by relying on intuition and understanding that normally comes from their personal interaction with the process. What they need is a means to look at the underlying process objectively. People only see the process from their own eyes. Some issues can’t be uncovered or are completely missed by BI tools and the business users, they could be in between teams, or in other areas where individuals don’t know about them. The secrets are in the data.
@@ -57,20 +39,21 @@ The good news is that many of these products, including Timeline, offer free tri
 
 ![](https://static4.abbyy.com/abbyycommedia/35293/ryanraiker-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ryan Raiker
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -125,8 +108,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +115,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-switching-to-grid-view-in-google-meet-chat-room-for-2024/"><u>[New] Switching to Grid View in Google Meet Chat Room for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-step-by-step-guide-to-mastering-magix-video-pro-x/"><u>[Updated] In 2024, A Step-by-Step Guide to Mastering Magix Video Pro X</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/discover-the-ultimate-guide-to-free-xvid-converters-pc-mac-and-online-solutions-compared/"><u>Discover the Ultimate Guide to Free Xvid Converters - PC, Mac, and Online Solutions Compared!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/diy-guide-extracting-lyrics-from-songs-using-3-powerful-no-cost-methods/"><u>DIY Guide: Extracting Lyrics From Songs Using 3 Powerful, No-Cost Methods</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-guide-converting-vob-files-to-avi-format-using-windows/"><u>Easy Guide: Converting VOB Files to AVI Format Using Windows</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-guide-freely-transforming-your-audio-from-m4a-to-ogg-using-these-10-methods/"><u>Easy Guide: Freely Transforming Your Audio From M4A to OGG Using These 10 Methods</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effective-techniques-for-installing-mdf-or-mds-a-guide-to-three-proven-strategies/"><u>Effective Techniques for Installing MDF or MDS: A Guide to Three Proven Strategies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-conversion-of-ac3-in-videos-to-aac-methods-for-windows-users-and-web-services/"><u>Effortless Conversion of AC3 in Videos to AAC - Methods for Windows Users & Web Services</u></a></li>
+<li><a href="https://discover-great.techidaily.com/effortless-mkv-to-avi-transformation-on-vlc-media-player-zero-watermarks-included/"><u>Effortless MKV to AVI Transformation on VLC Media Player – Zero Watermarks Included!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-these-top-8-apps-for-managing-additional-phone-contacts/"><u>Explore These Top 8 Apps for Managing Additional Phone Contacts</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-fix-for-kernelbasedll-failures-expert-advice-and-easy-solutions/"><u>Quick Fix for KernelBase.dll Failures: Expert Advice & Easy Solutions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-oppo-find-x6-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Oppo Find X6 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-restricted-torrents-top-4-strategies-for-site-unblocking/"><u>Unlocking Restricted Torrents: Top 4 Strategies for Site Unblocking</u></a></li>
+</ul></div>
 

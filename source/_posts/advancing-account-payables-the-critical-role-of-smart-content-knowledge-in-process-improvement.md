@@ -1,7 +1,7 @@
 ---
 title: "Advancing Account Payables: The Critical Role of Smart Content Knowledge in Process Improvement"
-date: 2024-09-05T11:11:20.907Z
-updated: 2024-09-06T11:11:20.907Z
+date: 2024-09-25T17:12:40.629Z
+updated: 2024-09-30T17:54:18.941Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/72178c55a17f02b5af426d7fce9f5984667c0f559291ba6b4b11d31fc14a8936.jpg
@@ -15,6 +15,13 @@ thumbnail: https://thmb.techidaily.com/72178c55a17f02b5af426d7fce9f5984667c0f559
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![Reginald J. Twigg](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
@@ -22,63 +29,35 @@ English
 ![Reginald J. Twigg](https://static2.abbyy.com/abbyycommedia/31957/reggietwigg-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Reginald J. Twigg
 
 Director, Enterprise Solutions, **ABBYY**
 
 ![Chris Haden](https://static2.abbyy.com/abbyycommedia/35580/engeneum-forspeakers-196x44.png) 
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Chris Haden](https://static4.abbyy.com/abbyycommedia/34649/93-chrishaden-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Chris Haden
 
 CEO, **Engeneum**
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The pandemic put a spotlight on manual invoice processing and paper plagued workflows.
 
 Shared Services teams found themselves thrust into remote work with operations that still relied on paper-based processes executed with manual workflows and handoffs. When office doors started to close, documents remained locked inside and new deliveries stacked up in mail collection areas of unattended offices. Working from home became mainstream overnight. Laptops were fired up and so were a host of concerns about how documents and data would be captured, stored, and shared. Although electronic exchange of documents became more normalised, many teams found that their operations were not well-suited to digital business.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The question lies, how has work been redesigned?
 
 Find out during this webinar, reflecting key findings from SSON's Global State of AP Automation Survey in partnership with ABBYY. Industry case studies and subject matter expertise will be shared to provide a reference on how to apply learnings from the results.
@@ -87,20 +66,15 @@ Find out during this webinar, reflecting key findings from SSON's Global State o
 * Develop the right strategy for successful AP Automation
 * Seamlessly integrate with existing ERP systems
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -110,13 +84,14 @@ All personal information collected via this method is under full scope of all pr
 
 [![Transforming AP Operations](https://static5.abbyy.com/abbyycommedia/34650/transforming-ap-operations.jpg)](https://www.youtube.com/watch?v=kX9OiIoXgWw) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -174,8 +149,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -183,4 +156,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/1716069417867-updated-2024-approved-how-to-manual-for-creating-an-inclusive-and-productive-skype-chat-room-accessible-by-both-windows-and-mac-users/"><u>[Updated] 2024 Approved How-To Manual for Creating an Inclusive and Productive Skype Chat Room Accessible by Both Windows & Mac Users.</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionizing-home-cinema-latest-on-samsungs-ubd-k850u/"><u>2024 Approved Revolutionizing Home Cinema Latest on Samsung’s UBD-K850U</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/captivate-crowds-secrets-to-screen-collaboration-via-social-media/"><u>Captivate Crowds Secrets to Screen Collaboration via Social Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-best-instagram-extractors-for-memories-saved/"><u>In 2024, The Best Instagram Extractors for Memories Saved</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transformative-zooms-for-snapchat-photos-and-videos/"><u>In 2024, Transformative Zooms for Snapchat Photos & Videos</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/nero-burning-rom-zum-dvd-kopieren-umfassende-anleitung-fur-heterogene-videodateien/"><u>Nero Burning ROM Zum DVD-Kopieren: Umfassende Anleitung Für Heterogene Videodateien</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/tecnicas-eficaces-para-minimizar-el-tamano-de-archivos-video-mov/"><u>Técnicas Eficaces Para Minimizar El Tamaño De Archivos Video MOV</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-for-maintaining-excellence-when-downscaling-video-resolution-from-108ebit-to-720p/"><u>Ultimate Guide for Maintaining Excellence when Downscaling Video Resolution From 108Ebit to 720P</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-tech-comforts-with-luxury-desktops/"><u>Ultimate Tech Comforts with Luxury Desktops</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/verstandnis-der-dateiformat-auswahl-bei-handbrake-warum-speichern-sie-videos-als-m4v-anstatt-mp4/"><u>Verständnis Der Dateiformat-Auswahl Bei Handbrake: Warum Speichern Sie Videos Als M4V Anstatt MP4?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1725285171242-mp3/"><u>フリー、高音質：フラックからMP3への簡単変換ガイド</u></a></li>
+</ul></div>
 

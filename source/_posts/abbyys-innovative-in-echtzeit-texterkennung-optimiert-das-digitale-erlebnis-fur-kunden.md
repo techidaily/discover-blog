@@ -1,46 +1,22 @@
 ---
 title: ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden
-date: 2024-09-05T11:11:21.258Z
-updated: 2024-09-06T11:11:21.258Z
+date: 2024-09-29T17:15:34.188Z
+updated: 2024-09-30T20:39:05.427Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a570e502a336cc42130adb602.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY's Innovative 'In Echtzeit'-Texterkennung Optimiert Das Digitale Erlebnis Für Kunden
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Neue ‚Real-Time‘ Texterkennung von ABBYY verspricht gesteigertes digitales Kundenerlebnis
 
 11\. April 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _„Point and Capture“- Toolkit ermöglicht sofortige Verwendung von Textinformationen, die direkt vom Vorschaubild von Smartphone- und Tablet-Kameras erfasst werden_
 
 ABBYY Europe, ein führender globaler Anbieter von Technologien und Lösungen zur Informationsverarbeitung, kündigt heute die Verfügbarkeit seiner neuen Real-Time Recognition Technologie an. Diese ermöglicht eine sofortige Extraktion von Text aus Dokumenten und Objekten, die im Live-Videostream von Smartphones und anderen Mobilgeräten betrachtet werden. Die Echtzeit-Texterkennung von ABBYY bietet eine einfache und unmittelbare Verwendung des erfassten Textes in einer Vielzahl von Mobilanwendungen – von reaktionsschnellen Kundenservice-Apps über automatisierte Unternehmensprozesse bis hin zu komfortablen Verbraucheranwendungen.
@@ -99,8 +75,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,4 +82,29 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-everything-you-need-to-know-about-stardew-valley-ginger-island/"><u>[New] Everything You Need to Know About Stardew Valley Ginger Island</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-discover-the-perfect-moment-timing-your-insta-posts/"><u>[New] In 2024, Discover the Perfect Moment Timing Your Insta Posts</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/videopad/"><u>動画編集のスキルアップ! VideoPadでシームレス動画カット法を学ぶ</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/vimeo/"><u>綺麗に撮影されたVimeo動画・ライブストリーミングのビデオ録画ガイド</u></a></li>
+<li><a href="https://techtrends.techidaily.com/elevate-your-brand-presence-a-comprehensive-guide-to-attaching-a-pinterest-section-to-facebook-page/"><u>Elevate Your Brand Presence: A Comprehensive Guide to Attaching a Pinterest Section to Facebook Page</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/explore-revolutionary-meeting-platforms-that-cost-nothing-for-2024/"><u>Explore Revolutionary Meeting Platforms That Cost Nothing for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-is-it-possible-to-see-all-chatted-content-of-others/"><u>In 2024, Is It Possible to See All Chatted Content of Others?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-fixes-for-outdated-windows-1011-audio-drivers/"><u>Quick Fixes for Outdated Windows 10/11 Audio Drivers</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshooting-dvhe-dvh1-format-issues-enable-dolby-vision-hevc-playback-on-windows-11/"><u>Troubleshooting DVHE-DVH1 Format Issues: Enable Dolby Vision HEVC Playback on Windows 11</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshooting-import-compatible-video-types-for-easy-transfer-into-davinci-resolve/"><u>Troubleshooting Import: Compatible Video Types for Easy Transfer Into DaVinci Resolve</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshooting-tips-enjoying-dvd-content-on-a-pc-with-windows-10-operating-system/"><u>Troubleshooting Tips: Enjoying DVD Content on a PC with Windows 10 Operating System</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/vbrcbr/"><u>VBRからCBRへの高品質な動画・音楽ストリーム変換方法</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/vobdvd/"><u>VOB形式にDVDディスクを変換するための簡単ガイド</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-samsung-galaxy-m54-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Samsung Galaxy M54 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

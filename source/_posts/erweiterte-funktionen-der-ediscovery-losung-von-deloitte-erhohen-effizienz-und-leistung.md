@@ -1,47 +1,30 @@
 ---
 title: Erweiterte Funktionen Der eDiscovery-Lösung Von Deloitte Erhöhen Effizienz Und Leistung
-date: 2024-09-05T11:11:21.041Z
-updated: 2024-09-06T11:11:21.041Z
+date: 2024-09-23T18:44:24.945Z
+updated: 2024-09-30T19:15:03.143Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d58887a0de4be9b5a76727ac2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Erweiterte Funktionen Der eDiscovery-Lösung Von Deloitte Erhöhen Effizienz Und Leistung
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 Consulting | BPO/Service Providers | PDF and Document Conversion
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Deloitte erweitert die Möglichkeiten ihrer eDiscovery-Suite mithilfe von ABBYY Recognition Server
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/70285.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Deloitte erweitert die Möglichkeiten ihrer eDiscovery-Suite mithilfe von ABBYY Recognition Server
 
@@ -49,21 +32,16 @@ BPO und Shared Services | PDF- und Dokumentenumwandlung
 
 ![](https://static1.abbyy.com/abbyycommedia/15274/cs-deloitte-556x303-2.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Über den Kunden
 
 ![Deloitte LLP](https://static3.abbyy.com/abbyycommedia/14693/logo-deloitte-new-162x30.svg) 
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name                  | Deloitte LLP                                                                      |
 | --------------------- | --------------------------------------------------------------------------------- |
@@ -113,26 +91,28 @@ Mit der neuen, nahtlos eingebundenen Lösung können Dokumente in der eDiscovery
 
 [![ABBYY Recognition Server wird jetzt ABBYY FineReader Server genannt](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (jetzt FineReader Server genannt)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![14-bpo](https://static2.abbyy.com/abbyycommedia/14364/14-bpo.jpg)](https://tools.techidaily.com/abbyy/products/) [BPOs und Outsourcing-Dienstleiter](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-hendre-360x162-2](https://static2.abbyy.com/abbyycommedia/15275/cs-hendre-360x162-2.jpg)](https://static3.abbyy.com/abbyycommedia/7351/fallstudie-deloitte-consulting-de.pdf "PDF-Version") [PDF-Version](https://static3.abbyy.com/abbyycommedia/7351/fallstudie-deloitte-consulting-de.pdf "PDF-Version") 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Zum Dokument](https://static3.abbyy.com/abbyycommedia/7351/fallstudie-deloitte-consulting-de.pdf "PDF-Version") 
 
 ###### Like, share or repost
@@ -151,8 +131,6 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -160,4 +138,21 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-unlocking-vidmas-secrets-to-superior-screen-recording/"><u>[New] 2024 Approved Unlocking Vidma’s Secrets to Superior Screen Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-royalty-free-music-platforms-for-content-makers-for-2024/"><u>[New] Cutting-Edge Royalty-Free Music Platforms for Content Makers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-c-spans-watchlist-for-the-curious-netizen/"><u>[Updated] C-Span's Watchlist for the Curious Netizen</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-essentials-of-combining-apple-music-and-videos/"><u>2024 Approved The Essentials of Combining Apple Music & Videos</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/windows11macosdvd/"><u>無料フリーソフトでWindows11/MacOS用、動画カメラ映像をDVDへ移行する詳しいガイド</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/dvd-dvd-winx-dvd/"><u>DVD 생성을 위한 윈엑스 비디오 컨버터, DVD 리퍼 - WinX DVD 코드를 구현하는 공식 웹사이트</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-device-integration-syncing-your-iphone-ipad-and-ipod-with-macos-catalinas-built-in-finder/"><u>Effortless Device Integration: Syncing Your iPhone, iPad & iPod with MacOS Catalina's Built-In Finder</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-htc-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your HTC Phone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-resolving-social-media-puzzle-zippy-fb-videos-not-in-view/"><u>In 2024, Resolving Social Media Puzzle Zippy FB Videos Not in View</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/kostenloze-webm-to-avi-conversion-overheenlijnen-met-movavi-online-vervangend-videokunstwerk/"><u>Kostenloze Webm to Avi Conversion Overheenlijnen Met Movavi - Online Vervangend Videokunstwerk</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/msi-b350-tomahawk-chipset-drivers-free-download-for-windows-10-and-7-users/"><u>MSI B350 Tomahawk Chipset Drivers: Free Download for Windows 10 & 7 Users</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/quick-and-efficient-methods-transforming-ts-files-into-high-quality-mp4/"><u>Quick and Efficient Methods: Transforming .TS Files Into High-Quality MP4</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/schnittige-anleitung-zum-kopieren-von-dvd-auf-pc-unter-windows-und-mac-erfolg-garantiert/"><u>Schnittige Anleitung Zum Kopieren Von DVD Auf PC Unter Windows Und Mac - Erfolg Garantiert!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/tutorial-comment-graver-un-dvd-dans-votre-cle-usb-pour-windows-ou-macos-guide-completement-revise/"><u>Tutorial: Comment Graver Un DVD Dans Votre Clé USB Pour Windows Ou macOS - Guide Complètement Révisé!</u></a></li>
+</ul></div>
 

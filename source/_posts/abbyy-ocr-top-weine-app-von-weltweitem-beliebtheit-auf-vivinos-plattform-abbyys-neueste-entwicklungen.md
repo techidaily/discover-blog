@@ -1,58 +1,22 @@
 ---
 title: "Abbyy OCR: Top Weine App Von Weltweitem Beliebtheit Auf Vivinos Plattform – Abbyy's Neueste Entwicklungen"
-date: 2024-09-05T11:11:20.890Z
-updated: 2024-09-06T11:11:20.890Z
+date: 2024-09-26T18:37:27.848Z
+updated: 2024-09-30T20:03:11.670Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a9719ddcbae5c52ddb9477f8674bda6f7443fbaaf23c9836dcb573723ce4b8e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Abbyy OCR: Top Weine App Von Weltweitem Beliebtheit Auf Vivinos Plattform – Abbyy's Neueste Entwicklungen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY OCR powert weltweit beliebteste Wein-App von Vivino
 
 23\. Mai 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien für Dokumentenerkennung, Data Capture und Linguistik, hat heute bekanntgegeben, dass [Vivino](https://www.vivino.com/), der Entwickler der weltweit am meisten heruntergeladenen Wein-App\*, ABBYY Technologie für Texterkennung (OCR) erfolgreich in sein Produkt integriert hat, um Informationen von Weinkarten in Restaurants zu erfassen. Bei der Weinbestellung können Restaurantbesucher mit der Vivino App ein Foto des Weinangebots machen und erhalten sofort nützliche Informationen, die ihnen bei der Wahl des passenden Weines helfen. Die integrierte ABBYY OCR-Technologie extrahiert den Text aus dem Foto. Damit wird auf Vivinos Datenbank für Bewertungen und Verkostungsnotizen von rund 12 Millionen Nutzern zugegriffen – das weltweit größte Weinverzeichnis.\*
 
 „Bei Wein gibt es eine Schwierigkeit: Über 75% der Weine werden nie durch Weinexperten bewertet, sodass Weintrinker bei der Auswahl nur wenige Informationen über die meisten Sorten besitzen. Hier helfen Vivinos Crowdsourcing-Bewertungen, die Millionen an Nutzern übermittelt haben, denn wir haben Bewertungen für fast jeden Wein auf der Welt”, sagt Torben Mottes, Vice President of Product Management, Vivino. „Und nicht nur das: Zusätzlich zu Details wie Weinsorten, Bewertungen und Nutzerkommentaren haben wir den Wein-Seiten in unserer App kürzlich eine Liste von Online-Händlern hinzugefügt, sodass Sie einen neuen Wein, den Sie in einem Restaurant kennengelernt haben, einfach erwerben können.“
@@ -103,8 +67,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,4 +74,37 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-tips-for-smooth-win11-meetings-via-zoom/"><u>[New] 2024 Approved Expert Tips for Smooth Win11 Meetings via Zoom</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-power-of-niche-hashtags-for-targeted-instagram-reach/"><u>[New] 2024 Approved The Power of Niche Hashtags for Targeted Instagram Reach</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-secure-mp3-conversion-of-live-skype-talks/"><u>[Updated] 2024 Approved Secure MP3 Conversion of Live Skype Talks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725285608122-ai/"><u>「高效且免費的AI製作人工智能手動照片修复軟件」</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>2024 Approved Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/aufrechterhaltung-und-verbesserung-von-bildern-mit-hochauflosenden-einstellungen-4k-8k-10k-durch-ki-technologie-bei-winxvideo/"><u>Aufrechterhaltung Und Verbesserung Von Bildern Mit Hochauflösenden Einstellungen (4K, 8K, 10K) Durch KI-Technologie Bei WinXVideo</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/des-solutions-ideales-pour-capturer-des-ecrans-sous-windows-1187-la-meilleure-selection-pour-realiser-des-recordings-decran-efficaces-sur-pc/"><u>Des Solutions Idéales Pour Capturer Des Écrans Sous Windows 11/8/7 - La Meilleure Sélection Pour Réaliser Des Recordings D'écran Efficaces Sur PC</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/die-spitzentechnik-der-kostenlosen-h265-hevc-uhd-video-player-alternativen-fur-das-jahr-2022-update/"><u>Die Spitzentechnik Der Kostenlosen H.265 HEVC UHD Video Player-Alternativen Für Das Jahr 2022 - Update</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-steps-mastering-winxdvd-software-with-our-comprehensive-guide/"><u>Easy Steps: Mastering WinXDVD Software with Our Comprehensive Guide</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/experience-maximum-space-savings-with-winxvideo-ai-compress-videos-by-90/"><u>Experience Maximum Space Savings with Winxvideo AI - Compress Videos by 90%</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/les-converteurs-video-gratuits-premium-sans-marque-deau-pour-descompression-en-ligne/"><u>Les Converteurs Vidéo Gratuits Premium Sans Marque D'Eau Pour Descompression en Ligne</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mejores-herramientas-sin-coste-para-duplicacion-de-disco-blu-ray-los-6-primeros-lugares/"><u>Mejores Herramientas Sin Coste Para Duplicación De Disco Blu-Ray: Los 6 Primeros Lugares</u></a></li>
+<li><a href="https://driver-download.techidaily.com/speedy-samsung-m2070fw-driver-installation-direct-links-inside/"><u>Speedy Samsung M2070FW Driver Installation – Direct Links Inside!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-to-free-and-reliable-dvd-software-on-windows-11-for-smooth-movie-streaming/"><u>Ultimate Guide to Free & Reliable DVD Software on Windows 11 for Smooth Movie Streaming</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-dell-2330d233n-series-printer-driver-to-the-newest-version/"><u>Update Your Dell 2330D/233n Series Printer Driver to the Newest Version</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

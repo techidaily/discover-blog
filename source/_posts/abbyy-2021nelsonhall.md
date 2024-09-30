@@ -1,46 +1,22 @@
 ---
 title: 「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析
-date: 2024-09-05T11:11:21.146Z
-updated: 2024-09-06T11:11:21.146Z
+date: 2024-09-26T16:29:38.337Z
+updated: 2024-09-30T19:15:17.569Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a8efd832e4ff850ed2946c105917f658a3e5ec7d74782a26831b6d30a49981c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 「プロセスマイニング」技術進化：ABBYY が2021年に席巻した市場動向とNelsonHallの詳細分析
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY社、世界有数のアナリスト企業NelsonHall社の 「Process Discovery & Mining NEAT Assessment 2021」でリーダーの評価を獲得
 
 12月16日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、世界有数のアナリスト企業であるNelsonHall社の「Process Discovery & Mining NEAT Assessment 2021（2021年のプロセスディスカバリーとプロセスマイニングのNEATベンダー評価）」においてリーダーの評価を獲得したことを発表しました。デジタルオペレーションの変革を専門とするNelsonHall社は、戦略的ソーシングマネージャーが、多様な基準や事業状況でベンダーのパフォーマンスを評価し、プロセスマイニングの具体的な能力、デスクトッププロセス検出、プロセス変革を計画および推進する能力において最も優れたベンダーを見極められるようNEAT評価ツールを作成しています。
 
 ABBYY社のCMOを務めるScott Opitzは、次のように述べています。
@@ -51,12 +27,6 @@ _ABBYY社のCMOを務めるScott Opitzは、次のように述べています_
 
 _![](https://static1.abbyy.com/abbyycommedia/34891/pdm-neat-accelerate-process-change-final.png?width=848&height=848)_
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY社は、将来的な顧客の要件を満たすことができる点と、すぐに利益をもたらす能力の点で比較評価され、業界でトップグループに位置づけられました。主な評価ポイントは、提供する製品の成熟度、提供能力、顧客が得られる利益、顧客とのパートナーシップ、革新を進めるメカニズム、契約期間を通じて顧客のビジネスをどの程度サポートしているのかなどが挙げられています。
 
 「ABBYY社は、ネイティブのプロセスマイニングとタスクマイニングの機能を備え、2つの機能を緊密に統合した非常に希少なプラットフォームを提供しています。ユーザーは360度全方位からの正確なデータ把握によって複数のレベルでビジネスプロセスを理解し、業務変革を計画することができます。ABBYY社がリーダーに位置付けられている理由は、これらの機能と同社の業務変革支援に向けた投資が大きな要因です」
@@ -93,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,4 +70,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-noticing-lack-of-interaction-in-chatworld/"><u>[New] In 2024, Noticing Lack of Interaction in Chatworld</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-speech-to-text-your-all-inclusive-gdoc-training-guide/"><u>[Updated] From Speech to Text Your All-Inclusive GDoc Training Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-transforming-vimeo-streams-into-reusable-mp3-audio/"><u>[Updated] In 2024, Transforming Vimeo Streams Into Reusable MP3 Audio</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726026934450-youtube/"><u>簡単に学べ！YouTubeの国際版アクセス方法</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/comparing-mobile-titans-samsung-galaxy-s-versus-nokia-n8/"><u>Comparing Mobile Titans: Samsung Galaxy S Versus Nokia N8</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/convert-your-flac-files-to-pcm-for-free-discover-these-8-handy-tips/"><u>Convert Your FLAC Files to PCM for Free - Discover These 8 Handy Tips!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027298321-dvd/"><u>DVDを複写する手段が分からない?その理由と対応方法をご紹介</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effective-techniques-for-reducing-video-file-size-using-handbrake-a-guide-and-top-other-tools/"><u>Effective Techniques for Reducing Video File Size Using Handbrake: A Guide & Top Other Tools</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-your-android-viewing-a-guide-to-flawless-mov-file-playback/"><u>Enhance Your Android Viewing - A Guide to Flawless MOV File Playback</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-c67-5g-lock-screen-password-by-drfone-android/"><u>How To Change Realme C67 5G Lock Screen Password?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-se-2020-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone SE (2020)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726030311450-mp3/"><u>MP3へと移行!ビデオ・オーディオファイル形式変換ガイド</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-cozy-winter-scenes-for-youtube-backdrops/"><u>Top 5 Cozy Winter Scenes for YouTube Backdrops</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-mastering-manycam-features-for-enhanced-live-streaming-and-virtual-camera-experiences/"><u>Ultimate Guide: Mastering ManyCam Features for Enhanced Live Streaming and Virtual Camera Experiences</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/webcam-safety-alert-uncover-7-critical-signs-of-hacking-and-essential-measures-to-secure-your-privacy/"><u>Webcam Safety Alert! Uncover 7 Critical Signs of Hacking and Essential Measures to Secure Your Privacy</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725285866710-windows-10/"><u>Windows 10で使いやすい最優秀の無料メールアプリ選び - 推薦リストを見て</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027943587-4k2k/"><u>コツが分かれば簡単! 4K規格のビデオを2Kフォーマットに変換する究極ガイド</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
