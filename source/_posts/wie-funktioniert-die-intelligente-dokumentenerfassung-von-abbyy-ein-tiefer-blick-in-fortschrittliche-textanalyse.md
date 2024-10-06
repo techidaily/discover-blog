@@ -1,7 +1,7 @@
 ---
 title: "Wie Funktioniert Die Intelligente Dokumentenerfassung Von ABBYY: Ein Tiefer Blick in Fortschrittliche Textanalyse"
-date: 2024-08-25T23:04:39.053Z
-updated: 2024-08-26T23:04:39.053Z
+date: 2024-10-03T19:35:22.601Z
+updated: 2024-10-05T22:37:22.018Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/234a90d5c27844c283f4441b2b9e5e76ee9e8064b4a1ba5d5f5c1598b8d0670d.jpg
@@ -49,15 +49,16 @@ Um zu verstehen, was IDP ist und wie sie Unternehmen nützt, muss man wissen, wa
 * **IDP ist nicht nur OCR oder Datenerfassung.**  IDP umfasst zwar OCR- und Datenerfassungstechnologien, diese sind jedoch Teil eines größeren Pakets von Funktionen, die die Verarbeitung von Inhalten zusätzlich mit Fachwissen und Entscheidungsfindungsmethoden unterstützen.
 * **IDP ist keine robotische Prozessautomatisierung (Robotic Process Automation, RPA).**  RPA bezeichnet die Automatisierung eigenständiger Aufgaben innerhalb definierter Prozesse auf Basis von Daten. Da der Inhalt eine Quelle dieser Daten ist, ist es wichtig, den Inhalt im Kontext zu verstehen, bevor daraus Daten für verschiedene nachgelagerte Prozesse extrahiert werden können. Die [Robotic Process Automation](https://tools.techidaily.com/abbyy/products/) kann dies nicht allein leisten und benötigt daher die Unterstützung von IDP, um qualifizierte inhaltliche Entscheidungen zu treffen.
 * **IDP ist nicht dasselbe wie ChatGPT.** Viele Leute denken, ChatGPT sei dasselbe wie optische Zeichenerkennung (OCR), aber dem ist nicht so. In Wirklichkeit handelt es sich um ein Modell zur Verarbeitung natürlicher Sprache (NLP), das Deep-Learning-Algorithmen verwendet, um in menschlicher Sprache Textantworten auf Benutzeranfragen zu erzeugen. Dagegen ist ABBYY Vantage eine [IDP-Lösung,](https://tools.techidaily.com/abbyy/products/) die OCR-Technologie (Optical Character Recognition) einsetzt, um Daten aus Dokumenten verschiedener Art zu extrahieren, darunter [Rechnungen](https://tools.techidaily.com/abbyy/products/), Bestellungen, Verträge und vieles mehr.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Die Entwicklung der IDP  
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-de.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Wie funktioniert die intelligente Dokumentenverarbeitung? 
 
 IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten im umgebenden Text zur Entitätsextraktion, mit der automatisch und mit hoher Genauigkeit festgestellt wird, auf welche Entitäten verwiesen wird. Bezeichnet das Wort „Jaguar“ beispielsweise eine Großkatze oder ein Auto? Oder bezeichnet das Wort „Sue“ in einem englischen Text eine Person oder eine rechtliche Klage? Mittels NLP identifiziert und extrahiert IDP unstrukturierte Daten mit bisher unerreichter Präzision, wie ein menschliches Gehirn, das schnell auf veränderte Eingaben reagiert und das bestmögliche Ergebnis liefert. 
@@ -82,8 +83,12 @@ In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizie
 **![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/process-intelligence-how-it-works-de.jpg)**
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [**Process Mining**](https://tools.techidaily.com/abbyy/products/) **hilft Unternehmen, ihre Prozesse zu analysieren, um intelligente Entscheidungen darüber zu treffen, wo die Dokumentenverarbeitung automatisiert werden soll. Es extrahiert Zeitstempeldaten aus Informationssystemen und wendet KI an, um ein visuelles Modell des Prozesses von Anfang bis Ende zu erstellen, einschließlich aller Abweichungen.** Die Prozessverantwortlichen erhalten einen klaren Überblick darüber, wie die Inhalte durch den Prozess fließen, und erhalten die nötigen Einblicke, um Ineffizienzen zu erkennen und zu beseitigen, die den Erfolg der IDP-Implementierung beeinträchtigen könnten.
 
 Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](https://tools.techidaily.com/abbyy/products/) mit IDP zusammen, um Unternehmen zu befähigen:
@@ -94,8 +99,12 @@ Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](h
 * die erforderlichen Document-Skills zur Optimierung der Verarbeitung von Inhalten anzuwenden.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## IDP-Anwendungsfälle: Digitale Beherrschung Ihrer Daten und Prozesse 
 
 Die Vielseitigkeit intelligenter Dokumentenverarbeitungsanwendungen bedeutet, dass Dokumente in jeder Sprache, jedem Format und zu jeder Zeit in intelligenten Automatisierungslösungen genutzt werden können. Wir werden vier Anwendungsfälle in den Bereichen Versicherung, Neukundenaufnahme/KYC, Logistik und Kreditabwicklung untersuchen, um Beispiele für den Einsatz von IDP zu zeigen. 
@@ -126,9 +135,6 @@ Das weltweit im Bereich [Logistik](https://tools.techidaily.com/abbyy/products/)
 
 Das Unternehmen, das im Jahr 2022 einen Umsatz von 100 Milliarden US-Dollar erwirtschaftete, nutzte zuvor ein weitgehend manuelles Buchhaltungssystem für die Verarbeitung von Hunderttausenden von Rechnungen pro Jahr. Durch die Einführung der intelligenten Dokumentenverarbeitung von ABBYY war das Unternehmen in der Lage, Rechnungen von 124 Lieferanten in verschiedenen Sprachen automatisch zu verarbeiten und so Fehler zu reduzieren und die Produktivität zu steigern. Das Unternehmen hat dann das IDP-Automatisierungsprojekt auf andere Abteilungen ausgeweitet und konnte so eine unglaubliche Effizienzsteigerung von 70 Prozent erzielen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Die Auswahl der richtigen Software für intelligente Dokumentenverarbeitung 
 
 Künstliche Intelligenz ist in aller Munde, und die Technologielandschaft entwickelt sich ständig weiter. Die Wahl der richtigen intelligenten Dokumentenverarbeitungssoftware ist daher ausschlaggebend, um sicherzustellen, dass Sie den richtigen Weg zur optimalen digitalen Transformation Ihrer Geschäftsprozesse einschlagen. Hier einige wichtige Punkte, die Sie beachten sollten. 
@@ -153,6 +159,13 @@ Mit [Vantage](https://tools.techidaily.com/abbyy/products/) können Sie eigene M
 #### Sind Sie bereit, die digitale Transformation zu beschleunigen und bei der Automatisierung der Dokumentenverarbeitung neue Wege einzuschlagen? 
 
 [Demo anfordern](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Häufig gestellte Fragen 
 
@@ -190,9 +203,6 @@ _Anmerkung der Redaktion: Dieser Blogbeitrag wurde ursprünglich am 8\. Dezember
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -200,6 +210,13 @@ Senior Director of AI Strategy
 Maxime Vermeir verfügt über ein Jahrzehnt an Erfahrung in den Bereichen Produkt und Technologie und ist ein Experte mit Unternehmergeist und mit einer Leidenschaft für die Schaffung außergewöhnlicher Kundenerlebnisse. Als Führungskraft hat er globale Teams von Innovationsberatern sowie Transformationsprojekte großer Unternehmen geleitet. Die Vermittlung von Einblicken in neue Technologien und ihre Einsatzmöglichkeiten zur Steigerung des Kundenwerts ist ein wichtiger Teil von Maximes Tätigkeit als Fachexperte. Er ist ein vertrauenswürdiger Berater und Vordenker auf seinem Gebiet, der die Technologien von ABBYY auf dem Markt bekannt macht. 
 
 Nehmen Sie über [LinkedIn](https://www.linkedin.com/in/maximevermeir/)mit Max Kontakt auf.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -255,8 +272,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -264,4 +279,20 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-navigating-obs-livestream-integration-for-maximum-facebook-reach/"><u>[New] 2024 Approved Navigating OBS Livestream Integration for Maximum Facebook Reach</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-mastering-screen-record-on-windows-10-devices/"><u>[New] In 2024, Mastering Screen Record on Windows 10 Devices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-navigating-snapchats-video-slowdown-feature/"><u>[New] Navigating Snapchat's Video Slowdown Feature</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-chuckle-centric-ringtone-websites-guide/"><u>[Updated] Chuckle-Centric Ringtone Websites Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-echoes-of-collaboration-tiktok-duet-hits/"><u>[Updated] In 2024, Echoes of Collaboration TikTok Duet Hits</u></a></li>
+<li><a href="https://common-error.techidaily.com/boost-your-pcs-boot-speed-essential-fixes-for-windows-7-delays/"><u>Boost Your PC's Boot Speed: Essential Fixes for Windows 7 Delays</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/dvddvd-shrinkiso/"><u>DVD圧縮時に発生する「DVD Shrinkエラーパラメータ」を修正して、ISOイメージ作成で失敗した場合の解決手順</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/fehlerbehebung-fur-handbrake-wie-man-probleme-beim-scannen-von-dvd-titeln-behebt/"><u>Fehlerbehebung Für HandBrake: Wie Man Probleme Beim Scannen Von DVD-Titeln Behebt</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/guida-facile-per-convertire-e-trasferire-filmati-vhs-su-un-computer-con-la-tecnologia-dvd/"><u>Guida Facile per Convertire E Trasferire Filmati VHS Su Un Computer Con La Tecnologia DVD</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-new-horizons-in-graphic-design-post-acid/"><u>In 2024, New Horizons in Graphic Design Post-ACID</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/insights-into-winxvideos-ai-capabilities-expert-responses-to-common-queries/"><u>Insights Into WinXVideo's AI Capabilities: Expert Responses to Common Queries</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-13-zero-cost-dvd-player-apps-compatible-with-windows-11-disc-to-digital-converter/"><u>Top 13 Zero Cost DVD Player Apps Compatible with Windows 11 | Disc-to-Digital Converter</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshooting-and-getting-handbrake-set-up-for-optimal-use-in-windows-1011-environments/"><u>Troubleshooting and Getting Handbrake Set Up for Optimal Use in Windows 10/11 Environments</u></a></li>
+</ul></div>
 

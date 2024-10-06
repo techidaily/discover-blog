@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Secrets of Music Statistics with BCR Tutorials: Dive Into ABBYY's Inspirational Articles"
-date: 2024-08-25T23:05:28.788Z
-updated: 2024-08-26T23:05:28.788Z
+date: 2024-09-30T21:28:46.529Z
+updated: 2024-10-05T22:08:30.373Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c62418c69c62e99541352f65884cd2a2f240cc4bb62bbfdd9664951cfe2c8e43.jpg
@@ -49,6 +49,19 @@ To see the statistics for a different year, tap on the three dots next to the sh
 
 ![ios shortscuts](https://static1.abbyy.com/abbyycommedia/26732/shortcut-music-3.png)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Android Tip: Spotify Wrapped
 
 There are many music streaming services for Android gadgets, but one of the most popular is Spotify. So let’s do it! Just head [here](https://open.spotify.com/view/2018-page). The "Your Top Songs 2018" playlist should be in Your Library à Made For You. Here you can check how many minutes you’ve streamed last year.
@@ -56,9 +69,18 @@ There are many music streaming services for Android gadgets, but one of the most
 Be sure that you’ve listened to at least 5 different artists, 30 different tracks, and 60 minutes of music before Oct 31, 2018.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## ABBYY Tip: A Business Card Reader Tutorial
 
 As promised, here is a small video tutorial that will help you familiarize yourself with [Business Card Reader](https://www.abbyybcr.com/en/?itm%5Fsource=mobileblog-bcr820). We hope it will be especially helpful for new users that want to improve their organizational skills. It may also be useful to seasoned Business Card Reader users that might have forgotten about a feature or two. Let’s get started:
@@ -67,9 +89,6 @@ As promised, here is a small video tutorial that will help you familiarize yours
 
 **Video #2: Managing Information**
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## App of the Week: Pacman
 
 If you’re into nostalgia, this retro-style game will be right up your alley.
@@ -79,8 +98,12 @@ Any person that is even remotely aware of popular culture must have seen this bi
 ![pacman on iphone nostalgy](https://static1.abbyy.com/abbyycommedia/26733/pacman.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 If none of this rings any bells at all, you need to download this cult 20th-century video game ASAP.
 
 You can download the iPhone version [here](https://itunes.apple.com/US/app/id293778748).
@@ -92,8 +115,12 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -149,8 +176,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -158,4 +183,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-your-brands-voice-the-power-of-shaped-videos/"><u>[New] 2024 Approved Amplify Your Brand’s Voice The Power of Shaped Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-gifs-from-youtube-detailed-step-by-step-guide-for-pcmobile/"><u>[New] Crafting GIFs From YouTube Detailed Step-by-Step Guide for PC/Mobile</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elite-firefox-video-recording-apps/"><u>[Updated] 2024 Approved Elite FireFox Video Recording Apps</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-guide-freely-transforming-your-audio-from-m4a-to-ogg-using-these-10-methods/"><u>Easy Guide: Freely Transforming Your Audio From M4A to OGG Using These 10 Methods</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effective-techniques-for-installing-mdf-or-mds-a-guide-to-three-proven-strategies/"><u>Effective Techniques for Installing MDF or MDS: A Guide to Three Proven Strategies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-conversion-of-ac3-in-videos-to-aac-methods-for-windows-users-and-web-services/"><u>Effortless Conversion of AC3 in Videos to AAC - Methods for Windows Users & Web Services</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-movie-viewing-tips-enhancing-youtube-experience-on-android-phones-and-tablets/"><u>Effortless Movie Viewing Tips: Enhancing YouTube Experience on Android Phones & Tablets</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/evaluating-ytmp3ccs-compliance-with-online-safeguards-and-copyright-laws/"><u>Evaluating YTMP3.cc's Compliance with Online Safeguards and Copyright Laws</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-visual-delights-a-review-of-the-kobo-clara-colour-e-reader/"><u>Exploring the Visual Delights: A Review of the Kobo Clara Colour E-Reader</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-vivo-y100-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Vivo Y100 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Vivo V29 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ocean-acidification-the-unseen-consequence-of-carbon-emissions/"><u>Ocean Acidification: The Unseen Consequence of Carbon Emissions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/say-goodbye-to-rainbow-six-extraction-crashing-on-your-pc-heres-how-you-can-fix-it/"><u>Say Goodbye to Rainbow Six Extraction Crashing on Your PC – Here's How You Can Fix It</u></a></li>
+</ul></div>
 

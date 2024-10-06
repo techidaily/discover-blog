@@ -1,7 +1,7 @@
 ---
 title: 「保険事業向けに開発されたデジタル化精査ポイントマニュアル」
-date: 2024-08-25T23:05:31.244Z
-updated: 2024-08-26T23:05:31.244Z
+date: 2024-10-04T16:47:52.788Z
+updated: 2024-10-06T03:00:09.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07d8502ce17333e6cd775d39369b0980ba5462f8a32cd1145e8a4d708fb6bf52.png
@@ -15,6 +15,13 @@ thumbnail: https://thmb.techidaily.com/07d8502ce17333e6cd775d39369b0980ba5462f8a
 
 ![Transforming The Insurance Customer Experience - ABBYY Checklist](https://static1.abbyy.com/abbyycommedia/35130/27g-7-steps-transform-customer-experience-ja-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 保険業のカスタマーエクスペリエンスを改善する方法
 
 ABBYYは保険会社をサポートし、オートメーション化によって最も大きな変化が表れる箇所を特定できるようにします。 保険業の大部分は、文書処理が作業の中心です。しかし、現状では、わずかな保険会社のみが保険業のインテリジェントオートメーションを最大限に活用しています。あるいは、オートメーション化の導入に集中するあまり、エンドツーエンドプロセスへの戦略的インサイトを用いることなく、手当たりしだいに進めてしまっている場合も多く見られます。
@@ -22,8 +29,12 @@ ABBYYは保険会社をサポートし、オートメーション化によって
 Digital Intelligenceが、デジタルフォーメーションを前進させるためには、はじめに次のことを知っておく必要があります。そもそも、そのプロセスが機能しているのか。そして、目的達成のために、コンテンツはどのように役立つのか。これらのことが、オートメーション化を導入する時期や方法を決定する前に、理解されなければなりません。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 今すぐダウンロード！
 
 RPAに投資したからといって、望み通りの結果が約束されているわけではありません。例えば、あなたは、文書に関連する法規制のコンプライアンスに、しっかりとした自信を持ちたいと思っています。ところが、そのためのプロセスが、顧客の不満や消耗につながってしまっているとしましょう。このチェックリストのなかには、それらの問題を解決するためのインサイトが詰まっています。このチェックリストは、保険業のカスタマーエクスペリエンスを際立ったものにするためのドアを開く助けとなるでしょう。
@@ -33,8 +44,12 @@ RPAに投資したからといって、望み通りの結果が約束されて�
 フォームに記入して、リストを入手しましょう。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
 
 [チェックリストを読む](https://digital.abbyy.com/hubfs/documents/content/checklist-insurance-transform-customer-experience-ja.pdf "チェックリストを読む") 
@@ -42,8 +57,12 @@ RPAに投資したからといって、望み通りの結果が約束されて�
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.
@@ -104,8 +123,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,4 +130,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-snaptweet-transporter-swift-transfer-of-tweets-content/"><u>[New] SnapTweet Transporter Swift Transfer of Tweets' Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-into-the-spotlight-on-instagram-with-these-tricks/"><u>[Updated] Step Into the Spotlight on Instagram with These Tricks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/15-best-luts-to-enhance-gopro-action-camera-footage/"><u>15 Best LUTs To Enhance GoPro Action Camera Footage</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps/"><u>2024 Approved Innovation in Minimization The Finest Selection of 43 Mobile Video Trimming Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-ideas-to-articulation-the-power-of-chatgpt-in-creativity-writing/"><u>From Ideas to Articulation: The Power of ChatGPT in Creativity Writing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-6-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic 6 Pro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-navigating-noise-free-networks-secrets-for-silencing-disruptions-on-gomeet/"><u>In 2024, Navigating Noise-Free Networks Secrets for Silencing Disruptions on GoMeet</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimizing-gameplay-low-lag-high-fps-on-roblox-pcs/"><u>Optimizing Gameplay: Low Lag, High FPS on Roblox PCs</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pcwebex/"><u>PC用Webex会議終了後にどうやって自動録画するか「非主催者も可能」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/quick-and-easy-steps-to-stream-your-favorite-shows-on-pluto-tv/"><u>Quick & Easy Steps to Stream Your Favorite Shows on Pluto TV</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/simple-steps-for-converting-audio-formats-using-vlc-media-player/"><u>Simple Steps for Converting Audio Formats Using VLC Media Player</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-converting-sound-designer-ii-sdii-files-to-wav-format/"><u>Step-by-Step Guide: Converting Sound Designer II (SDII) Files to WAV Format</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-mastering-video-conversion-using-vlc-media-player/"><u>Step-by-Step Guide: Mastering Video Conversion Using VLC Media Player</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-trimming-and-cropping-videos-with-windows-media-player/"><u>Step-by-Step Guide: Trimming and Cropping Videos with Windows Media Player</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-tutorial-enable-and-view-flv-files-on-iphoneipad-with-one-click/"><u>Step-by-Step Tutorial: Enable & View FLV Files on iPhone/iPad with One Click</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unleash-the-filmmaker-within-a-kids-guide-to-movie-creation-for-2024/"><u>Updated Unleash the Filmmaker Within A Kids Guide to Movie Creation for 2024</u></a></li>
+</ul></div>
 

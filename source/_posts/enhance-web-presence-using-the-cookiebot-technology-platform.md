@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Presence Using the Cookiebot Technology Platform
-date: 2024-08-25T23:05:58.426Z
-updated: 2024-08-26T23:05:58.426Z
+date: 2024-10-01T17:42:18.221Z
+updated: 2024-10-05T20:06:09.730Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b79165ba9ef446402f78df39c0ae5aec29c669cdb8669a7402e153be3d685b74.jpg
@@ -39,6 +39,13 @@ _Mariko Maeda, ABBYY Japan President & CEO._
 
 IDC, a global research firm, predicts that the Asia Pacific and Japanese markets for intelligent process automation (IPA) will grow to $5.5 billion by 2025, reaching $42.5 billion globally. IPA is a combination of technologies used to manage and automate digital processes, including intelligent automation platforms such as RPA, IDP/AI OCR, process mining, AI, and machine learning. ABBYY is recognized as a leader in IDP and process mining solutions by industry analysts.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -50,15 +57,29 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -74,8 +95,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -83,4 +102,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-improve-office-productivity-with-speech-to-text-conversion-in-microsoft-word-for-2024/"><u>[Updated] Improve Office Productivity with Speech to Text Conversion in Microsoft Word for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-do-creators-profit-from-product-evaluations-on-youtube/"><u>[Updated] In 2024, Do Creators Profit From Product Evaluations on YouTube?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-selecting-premium-microphones-for-ultra-hd-videography/"><u>[Updated] In 2024, Selecting Premium Microphones for Ultra-HD Videography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-digital-archivists-toolkit-downloading-videos-from-messenger-for-2024/"><u>[Updated] The Digital Archivist's Toolkit Downloading Videos From Messenger for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/4-effektivte-metoder-til-optimering-af-skaerme-pa-windows-10/"><u>4 Effektivte Metoder Til Optimering Af Skærme På Windows 10</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726224456762-movavimp3/"><u>音楽データのビットレート調整: Movaviを使ったMP3形式への変換ガイド</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/breeze-into-adventures-compiling-top-7-free-chatgpt-itinerary-apps/"><u>Breeze Into Adventures: Compiling Top 7 Free ChatGPT Itinerary Apps</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-steps-to-refresh-your-iphone-15s-system/"><u>Easy Steps to Refresh Your iPhone 15'S System</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/grabacion-de-video-gratuita-en-linea-convertir-archivos-3gp-a-formatos-wmv/"><u>Grabación De Video Gratuita en Línea - Convertir Archivos 3GP a Formatos WMV</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/guia-passo-a-passo-para-transformar-arquivos-opus-em-mp3-gratuito-na-web/"><u>Guia Passo-a-Passo Para Transformar Arquivos OPUS Em MP3 Gratuito Na Web</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pick-of-the-crop-dji-action-vs-gopro-360-and-instax360/"><u>In 2024, Pick of the Crop DJi Action Vs. GoPro 360 and InstaX360</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mastering-the-art-of-photography-the-comprehensive-rolling-shutter-manual-by-movavi/"><u>Mastering the Art of Photography: The Comprehensive Rolling Shutter Manual by Movavi</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-gta-5-frame-drops-fixes-and-tips/"><u>Solving GTA 5 Frame Drops: Fixes and Tips</u></a></li>
+</ul></div>
 

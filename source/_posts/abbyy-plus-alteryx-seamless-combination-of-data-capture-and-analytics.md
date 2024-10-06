@@ -1,7 +1,7 @@
 ---
 title: "ABBYY + Alteryx: Seamless Combination of Data Capture & Analytics"
-date: 2024-09-05T11:11:22.883Z
-updated: 2024-09-06T11:11:22.883Z
+date: 2024-09-30T00:35:31.279Z
+updated: 2024-10-05T22:04:06.487Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a1279cf80c48b5d07e445a792c9d8724bed8be94f6300bf5faaee6611684917.jpg
@@ -9,12 +9,6 @@ thumbnail: https://thmb.techidaily.com/7a1279cf80c48b5d07e445a792c9d8724bed8be94
 
 ## ABBYY + Alteryx: Seamless Combination of Data Capture & Analytics
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 
 
 ## ABBYY | Alteryx 
@@ -31,6 +25,19 @@ ABBYY TimelineとAlteryx Analytic Process Automation (APA) Platform™ の組み
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### ABBYY TimelineとAlteryx環境を組み合わせて、次のことを可能にします： 
 
 ##### ビジネスプロセスの評価 
@@ -46,11 +53,18 @@ Timelineのプロセス分析、クエリ、フィルタリング機能は、分
 Timelineのプロセスモニタリングを活用することで、Alteryxのユーザーは、現在進行中のビジネスプロセスのモニタリングを行うことができます。プロセス内の各ステップが、複数のバックエンドシステムで稼働していても、モニタリングは可能です。ユーザーは、Alteryxのアナリティック・プロセス・オートメーションによって進められる業務の条件を、素早く設定することができます。
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 統合するメリット 
 
 プロセス分析可能なAlteryx Analytics Platform™ 
@@ -71,30 +85,12 @@ Alteryx APAのデータを活用した作業プロセスやプロセスの変動
 
 コストや期間、ボリュームといった定量化が可能なプロセスメトリックスを活用し、データドリブンな決定を行うための論拠を自動的に生成します。
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Process Intelligenceにより強化されたAlteryx APA Platform™ 
 
 エンドツーエンドの業務プロセスを最適化するプロセス分析可能なAPA。 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/all-solutions/connectors/12-alteryx-scheme-jp.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Alteryx向けABBYY コネクタ 
 
 Alteryx向けABBYY コネクタは、ABBYY TimelineプラットフォームとAlteryx APA PlatformTMを統合します。Alteryxのデータソースやアセットが、ABBYY Timelineによってアクセスされ、活用されるようになります。これにより、応用型プロセス分析の結果として、データドリブンなプロセスへのインサイトを得ることができます。
@@ -103,12 +99,6 @@ Alteryx向けABBYY コネクタは、ABBYY TimelineプラットフォームとAl
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/alteryx.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### ユースケース
 
 分析およびデータサイエンス・オートメーションをProcess Intelligenceと組み合わせ、デジタル・トランスフォーメーションを加速させる。
@@ -127,12 +117,6 @@ ABBYY Timelineは、合法の範囲を超えて通報の対象となる疑いが
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image-2.jpg?h=716&iar=0&w=1272)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 ##### ブログ 
@@ -157,12 +141,52 @@ ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエン�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+##### ウェビナー
+
+#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
+
+See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
+
+[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+##### ブログ 
+
+#### ABBYY Timeline Connector for Alteryx®のご紹介 
+
+アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
+
+[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+##### ビデオ 
+
+#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
+
+ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
+
+[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
 ##### ウェビナー
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
@@ -184,19 +208,21 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### ビデオ 
 
 #### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
@@ -207,63 +233,26 @@ ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエン�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+##### ウェビナー
+
+#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
+
+See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
+
+[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
+
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-##### ウェビナー
-
-#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
-
-See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
-
-[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-##### ブログ 
-
-#### ABBYY Timeline Connector for Alteryx®のご紹介 
-
-アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
-
-[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
-
-##### ビデオ 
-
-#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
-
-ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
-
-[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-##### ウェビナー
-
-#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
-
-See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
-
-[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
 
 ### 専門家に相談してみませんか？
 
@@ -275,8 +264,6 @@ See how you can gain a 360-degree view of your business operations, enabling bus
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -284,4 +271,23 @@ See how you can gain a 360-degree view of your business operations, enabling bus
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/1716069102195-new-2024-approved-odins-revenge-ragnarok-coming-soon/"><u>[New] 2024 Approved Odin's Revenge Ragnarök - Coming Soon!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-successful-videos-on-youtube-for-beginners/"><u>[New] Crafting Successful Videos on YouTube for Beginners</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-photos-with-text-a-windowsmac-methodology/"><u>[New] Enhancing Photos with Text A Windows/Mac Methodology</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-downloading-dynamism-techniques-for-preserving-online-lives/"><u>[New] In 2024, Downloading Dynamism Techniques for Preserving Online Lives</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dive-into-detailed-review-of-sj7s-high-res-4k-action-camera-for-2024/"><u>Dive Into Detailed Review of SJ7’s High-Res 4K Action Camera for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-asus-xn441ba-the-big-screen-laptop-that-comes-with-a-set-of-sacrifices/"><u>Expert Insights on Asus Xn441Ba: The Big-Screen Laptop That Comes With a Set of Sacrifices</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/navigating-the-digital-world-with-abbyy-top-tips-for-image-processing-qr-codes-online-networks-and-real-time-exchange-rates/"><u>Navigating the Digital World with ABBYY: Top Tips for Image Processing, QR Codes, Online Networks & Real-Time Exchange Rates</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/neues-potenzial-entdecken-steigerung-ihres-cashflows-mit-der-abbyy-checkliste/"><u>Neues Potenzial Entdecken: Steigerung Ihres Cashflows Mit Der ABBYY Checkliste</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/no-code-ai-ocr-solutions-with-abbyys-new-vantage-and-ocr-collection-empower-your-business-with-easy-to-implement-artificial-intelligence/"><u>No-Code AI OCR Solutions with ABBYY's New Vantage and OCR Collection - Empower Your Business With Easy-to-Implement Artificial Intelligence</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimize-and-personalize-user-journey-using-cookiebot-technology/"><u>Optimize & Personalize User Journey Using Cookiebot Technology</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/optimize-your-system-comprehensive-instructions-to-refresh-graphics-drivers-on-windows-11/"><u>Optimize Your System: Comprehensive Instructions to Refresh Graphics Drivers on Windows 11</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimized-with-advanced-analytics-cookiebots-expertise/"><u>Optimized with Advanced Analytics: Cookiebot's Expertise</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimized-with-advanced-retargeting-technology-from-cookiebot/"><u>Optimized with Advanced Retargeting Technology From Cookiebot</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pioneering-progress-in-insurance-strategies-for-success-with-future-focused-solutions/"><u>Pioneering Progress in Insurance: Strategies for Success with Future-Focused Solutions</u></a></li>
+<li><a href="https://app-tips.techidaily.com/seamlessly-reduce-your-whatsapp-audio-files-with-these-proven-strategies/"><u>Seamlessly Reduce Your WhatsApp Audio Files with These Proven Strategies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+</ul></div>
 

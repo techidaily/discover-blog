@@ -1,52 +1,22 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Website's User Experience with Smart Analytics"
-date: 2024-09-05T11:11:21.409Z
-updated: 2024-09-06T11:11:21.409Z
+date: 2024-10-01T00:17:31.167Z
+updated: 2024-10-05T23:08:53.024Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157fc9657d20a61cd8374fcc9ae.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhancing Your Website's User Experience with Smart Analytics
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## L’OCR d’ABBYY au service de Vivino, l’appli la plus prisée des amateurs de vin dans le monde
 
 28 janvier 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Évaluations collaboratives et liste des détaillants sont désormais directement à la portée des consommateurs**  
   
 ABBYY, acteur majeur de la reconnaissance de documents, de la capture de données et des technologies linguistiques, annonce aujourd’hui que [Vivino](http://www.vivino.com), l’application mobile des amateurs de vin la plus téléchargée dans le monde\*, a intégré avec succès la technologie de reconnaissance optique de caractères (OCR) d’ABBYY, et afin de permettre l’extraction d’informations à partir de la carte des vins des restaurants. Avant de commander du vin, le client peut utiliser l’appli Vivino pour prendre une photo de l’offre des vins et accéder ainsi instantanément à de précieuses informations qui l’aideront à choisir la bonne bouteille. La technologie OCR d’ABBY intégrée permet d’extraire le texte de la photo, pour avoir accès à la base de données des évaluations et notations de dégustation Vivino, base alimentée par 12 millions d’utilisateurs, ce qui en fait la plus grande source de données œnologiques au monde.\*
@@ -93,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,4 +70,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-a-step-by-step-approach-for-effective-spotify-marketing/"><u>[New] A Step-by-Step Approach for Effective Spotify Marketing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-make-your-images-stand-out-mastering-background-removal-with-photopea/"><u>[New] Make Your Images Stand Out Mastering Background Removal with Photopea</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-trailer-treasure-chest/"><u>[New] Ultimate Trailer Treasure Chest</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1725289604844-2024-dvd/"><u>【2024】 DVD プレーヤーなしでも簡単にテレビで動画を楽しむ方法</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/accelerer-le-codage-hevch265-solutions-pour-une-compression-video-plus-efficace/"><u>Accélérer Le Codage HEVC/H.265 : Solutions Pour Une Compression Vidéo Plus Efficace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clear-speech-pathway-top-100-english-linguistic-challenges/"><u>Clear Speech Pathway: Top 100 English Linguistic Challenges</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/digiartyand-dvd26/"><u>Digiarty製品紹介&ガイド - DVDコピー技術解説：専門家ブログ・第26章</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-nokia-c32-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Nokia C32 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revolutionizing-reality-top-vr-peripherals-for-2024/"><u>Revolutionizing Reality Top VR Peripherals for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/simple-steps-to-transform-mp4-files-into-mkv-with-no-cost/"><u>Simple Steps to Transform MP4 Files Into MKV with No Cost</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-solutions-for-watching-flv-videos-on-a-mac-a-guide-to-quality-f4v-playback/"><u>Top Solutions for Watching FLV Videos on a Mac: A Guide to Quality F4V Playback</u></a></li>
+<li><a href="https://games-able.techidaily.com/valve-enhances-game-access-via-steams-updated-family-sharing/"><u>Valve Enhances Game Access via Steam's Updated Family Sharing</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

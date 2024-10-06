@@ -1,40 +1,22 @@
 ---
 title: "Robotic Process Automation Triumphs: Over Half of UK Firms Embrace RPA & Process Mining, Says ABBYY Insights"
-date: 2024-09-05T11:11:22.811Z
-updated: 2024-09-06T11:11:22.811Z
+date: 2024-10-04T23:15:02.303Z
+updated: 2024-10-05T20:54:18.629Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469cd27f4e2765e160c088926b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Robotic Process Automation Triumphs: Over Half of UK Firms Embrace RPA & Process Mining, Says ABBYY Insights
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## UK finally sees automation success as 6 in 10 UK businesses invest in RPA and process mining
 
 May 13, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _89% of businesses see success in majority of automation projects; 25% in every project 9 in 10 UK businesses use technology to understand and improve their processes_ 
 
 The UK is making great strides in adopting process automation technologies like robotic process automation (RPA) and process mining, according to new research from digital intelligence company ABBYY.
@@ -89,8 +71,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,4 +78,29 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-peak-popularity-on-reddit-10-most-upvoted-stories-for-2024/"><u>[New] Peak Popularity on Reddit 10 Most Upvoted Stories for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ultimate-guide-to-zooming-in-on-effective-win11-meetings/"><u>[Updated] 2024 Approved Ultimate Guide to Zooming In on Effective Win11 Meetings</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-from-basic-to-expert-mastering-the-art-of-adobe-ps-background-removal/"><u>[Updated] From Basic to Expert Mastering the Art of Adobe PS Background Removal</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-20-zero-cost-pubg-visual-anthologies/"><u>[Updated] Top 20 Zero-Cost PUBG Visual Anthologies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-efficiency-mcdonalds-integration-of-abbyys-cutting-edge-ocr-into-their-mobile-app-features/"><u>Boosting Efficiency: McDonald's Integration of ABBYY's Cutting-Edge OCR Into Their Mobile App Features</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-online-engagement-with-cookiebot-technology-a-powerful-seo-partner/"><u>Boosting Online Engagement with Cookiebot Technology - A Powerful SEO Partner</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/clayton-c-peddy-leading-abbyy-as-the-esteemed-chief-information-security-officer/"><u>Clayton C. Peddy: Leading ABBYY as the Esteemed Chief Information Security Officer</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-personalization-boost-your-sites-performance/"><u>Cookiebot-Enabled Personalization: Boost Your Site's Performance!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-marketing-automation/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics & Marketing Automation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-your-websites-analytics-with-advanced-tracking/"><u>Cookiebot-Enabled: Enhancing Your Website's Analytics with Advanced Tracking</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-solutions-for-recurring-freezing-and-crashes-on-world-of-tanks-blitz/"><u>Expert Solutions for Recurring Freezing and Crashes on World of Tanks Blitz</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-iphone-x-secure-access-restoring-biometric-lock-for-2024/"><u>Mastering iPhone X Secure Access Restoring Biometric Lock for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-zte-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from ZTE</u></a></li>
+<li><a href="https://article-helps.techidaily.com/shopping-highlights-editing-steps-for-hauls-and-collections-for-2024/"><u>Shopping Highlights Editing Steps for Hauls & Collections for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Oppo A78 5G | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

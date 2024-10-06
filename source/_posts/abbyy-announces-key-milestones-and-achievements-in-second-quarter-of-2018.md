@@ -1,46 +1,22 @@
 ---
 title: ABBYY Announces Key Milestones and Achievements in Second Quarter of 2018
-date: 2024-09-05T11:11:22.002Z
-updated: 2024-09-06T11:11:22.002Z
+date: 2024-09-29T22:10:30.825Z
+updated: 2024-10-05T23:37:50.910Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d4104755754e528cce96e41f403.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Announces Key Milestones and Achievements in Second Quarter of 2018
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Releases Corporate Highlights for Q2 2018
 
 July 26, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 For ABBYY®, a global provider of content intelligent solutions and services, the second quarter of 2018 was packed full of new releases, events, and activities. With the growing demand for robotic process automation and digital transformation technologies, ABBYY continues to provide its partners and customers with top-of-the-line solutions improving their business outcomes. This digest contains a few highlights of Q2 2018\.   
   
 **Product News**
@@ -152,8 +128,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -161,4 +135,29 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-animation-in-your-screencasts/"><u>[New] 2024 Approved Unlocking the Potential of Animation in Your Screencasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-beginners-guide-to-gopro-extras-for-2024/"><u>[New] Beginner's Guide to GoPro Extras for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-elevating-the-profile-game-top-strategies-for-compelling-social-media-profiles-for-2024/"><u>[New] Elevating the Profile Game Top Strategies for Compelling Social Media Profiles for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiled-list-leading-top-10-facebook-video-downloaders-for-android/"><u>[New] Unveiled List Leading Top 10 Facebook Video Downloaders for Android</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-navigating-photoplusvideo-integration-with-iphone/"><u>[Updated] Navigating Photo+Video Integration with iPhone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-strategies-for-boosting-handp-healthcare-fb-campaigns/"><u>[Updated] Top Strategies for Boosting H&P Healthcare FB Campaigns</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-sculpting-soundtracks-for-animation-using-movie-maker-tools/"><u>2024 Approved Sculpting Soundtracks for Animation Using Movie Maker Tools</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-tutorial-enable-and-view-flv-files-on-iphoneipad-with-one-click/"><u>Step-by-Step Tutorial: Enable & View FLV Files on iPhone/iPad with One Click</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/struggling-to-upload-mp4-files-on-itunes-unlock-expert-troubleshooting-tips-now/"><u>Struggling to Upload MP4 Files on iTunes? Unlock Expert Troubleshooting Tips Now!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-to-choosing-the-best-hd-video-player-software-for-your-pc-top-seven-options/"><u>Ultimate Guide to Choosing the Best HD Video Player Software for Your PC - Top Seven Options</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-tutorial-set-up-and-enjoy-sirius-channels-with-a-kodi-addon-for-media-center-pro-2023/"><u>Ultimate Tutorial: Set Up and Enjoy Sirius Channels with a Kodi Addon for Media Center Pro 2023</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-samsung-galaxy-a23-5g-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Samsung Galaxy A23 5G?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/weversepc/"><u>Weverse画面収録ガイド:PCユーザー向け最新手法</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/windows-heminutation-mastering-sound-recording-in-w7-a-detailed-walkthrough/"><u>Windows Heminutation: Mastering Sound Recording in W7 - A Detailed Walkthrough</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wonderfox-dvd-video-converter-steps-for-signup-and-premium-version-upgrade/"><u>WonderFox DVD Video Converter: Steps for Signup & Premium Version Upgrade</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

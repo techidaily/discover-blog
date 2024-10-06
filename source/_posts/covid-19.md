@@ -1,7 +1,7 @@
 ---
 title: COVID-19と労働パターンの変革：新しい生活基準
-date: 2024-09-05T11:11:22.404Z
-updated: 2024-09-06T11:11:22.404Z
+date: 2024-10-02T20:33:39.834Z
+updated: 2024-10-05T16:16:03.593Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/668fe014e6bae21be4d1f17bf36923c523f3242cbf8f9156a716780e5d4eeb63.jpg
@@ -23,12 +23,6 @@ thumbnail: https://thmb.techidaily.com/668fe014e6bae21be4d1f17bf36923c523f3242cb
 
 ![working from home yes or no](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### より、生産的に仕事をこなせましたか？
 
 アンケートの結果によりますと、43%の人々は在宅勤務となり、より生産的に仕事ができるようになったと感じています。一方で32.6%の方々はあまり違いを感じておらず、21.8%の方々は、生産性が落ちたと感じられています。何名かは在宅勤務の複雑な心情をシェアして下さっています。
@@ -40,12 +34,6 @@ _“在宅でも、生産性を上げようと試みたが、労働時間が異�
 _“業務による。いくつかは良くなったし、いくつかは悪くなった…”_  
 _“それぞれ、いくつかの業務が当てはまる”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### モチベーションはどうですか。上がりましたか？
 
 36.2%のユーザは、モチベーションレベルは変わっていないと回答しています。ほぼ同割合で、35.4%のユーザが在宅勤務によって、モチベーションが上がったと回答しています。一方で、27％の方々はモチベーションが下がってしまったと回答しています。
@@ -53,17 +41,12 @@ _“それぞれ、いくつかの業務が当てはまる”_
 ![Levels of motivation remote compared to in office](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 労働時間に変化はありますか？
 
 1日の労働時間として、最も多かったのが、8～10時間で33.8% 、次いで6～8時間で25.7%, そして4～6時間が19.6%という結果でした。
@@ -72,12 +55,6 @@ _“それぞれ、いくつかの業務が当てはまる”_
 
 ![Have you been working longer or shorter hours while working remotely compared to working in the office?](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 新型コロナウィルス流行前と比べ、43.2%の方々が在宅勤務で長時間働くようになったと答えています。一方で、27.3%の方々が働く時間が短くなったと回答しています。以下、いくつか回答例をシェアします。
 
 _“労働の境界がなくなり、長く働いてしまう。”_  
@@ -86,21 +63,29 @@ _“日常が変わる前と比べての労働時間は、何とも言えない�
 _“オフィスで働くよりも、在宅勤務のほうが心地よく、よって長時間働くようになってしまった。”_ 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### オフィスワークに戻るとなったとき、好ましい職場とはどんな条件でしょう？
 
 53%の回答者が在宅勤務とオフィスワークのどちらも選択できるような柔軟な環境が好ましいと考えています。多くの人が在宅勤務とオフィスワークの比率を半々か、もしくは数日だけオフィスへ通って大部分は在宅勤務が良いと考えています。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 利点は何でしょう?
 
 回答者は在宅勤務の多くの利点をあげていますが、その中でも多い回答が以下となります。
@@ -109,6 +94,13 @@ _“オフィスで働くよりも、在宅勤務のほうが心地よく、よ�
 
 ![Advantages of remote work](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 また、以下、いくつか利点の回答例をシェアします。
 
 _“家で過ごすことは快適であり、素早い休憩を取ることが可能。ペットと外へ出て、新鮮な空気を吸うことも可能。窓を開けて、自然の音を聞き、リフレッシュ休憩が可能。蛍光灯やうるさい電話もなく、好きな音楽を流すことも可能。5時前に夕食の準備に取りかかることも、ランチ後に散歩することも可能。－こういった自分たちにとって大切な楽しみが増加。”_  
@@ -116,16 +108,17 @@ _“非効率なコミュニケーションが減少”_
 _“ガソリンや移動時間を浪費することなく、働くときには車を止めてと、より生産的に”_  
 _“家庭でより良い食事をとれるようになった。また、非常にシンプルな家事（例えば、花への水やり）をやりながら、もしくは家でくつろぎながら、電話会議をできる可能性が整った。”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### では、良くない点はどうでしょう？
 
 ![Disadvantages of remote work](https://static1.abbyy.com/abbyycommedia/29713/productivity-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 在宅勤務の良くない点ですが、アンケートによると、51.3%の方々が、家では気を散らすことが色々とあると回答しています。また、同僚とのコミュニケーションの欠如が38.9%とこれに続きます。そして、29.3%の方々は十分なPC環境を在宅勤務ではお持ちではないことを問題点としてあげられています。以下、在宅勤務には消極的な意見の抜粋となります。
 
 _“情報、フィードバック、承認を得ることが時々、困難でフラストレーションが溜まる。ビデオ会議は非常に助かっている。”_  
@@ -139,6 +132,13 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 
 ![How has working from home affected your work life balance?](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 40.6%の方々が、仕事とリラクゼーションを1日の中で分散させ、計画することを好みましたが、24.8%の方々は仕事からリラクゼーションへの切り替えに問題を経験したと回答されました。
 
 ### ストレスはどうですか？
@@ -148,11 +148,12 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 ![How has working from home affected your stress](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ガジェットの使用、スクリーンを見る時間はどうなりましたか？
 
 ロックダウンにより、人々はよりガジェットを使うようになり、65.1%もの人が、スクリーンを見る時間が増えたと回答しています。
@@ -171,12 +172,6 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 * [Calm](https://www.calm.com/)
 * [BrainHQ](https://www.brainhq.com/?v4=true&fr=y)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 回答者は?
 
 40-59歳の方々が51.5%と最も多くなっております。職種は、管理職、スペシャリスト（IT系が多い）、エンジニア、営業、教育系が多くなっております。  
@@ -186,12 +181,6 @@ _“オフィスのPC環境と比べて、在宅では非力”_
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -246,8 +235,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -255,4 +242,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-become-a-pro-at-live-streaming-on-discord-with-our-simple-steps/"><u>[New] In 2024, Become a Pro at Live Streaming on Discord with Our Simple Steps</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-humorhub-join-the-fun-filled-world/"><u>[New] In 2024, HumorHub Join the Fun-Filled World</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-peeling-back-layers-the-hidden-meanings-of-everyday-emojis/"><u>[Updated] 2024 Approved Peeling Back Layers The Hidden Meanings of Everyday Emojis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-collaboration-techniques-in-video-making-viewership-up-for-2024/"><u>[Updated] Collaboration Techniques in Video Making, Viewership Up for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-method-retain-tweets-video-on-your-android-gadget-for-2024/"><u>[Updated] Quick Method Retain Tweets' Video on Your Android Gadget for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-easy-and-professional-photo-editing-with-movavi-download-now/"><u>1. Easy and Professional Photo Editing with Movavi - Download Now</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3mpeg-movavi/"><u>無限制線上將音樂MP3變成影片MPEG格式 - 使用Movavi的轉換器指南</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/kostenloze-tiff-naar-jpg-omzetting-online-verwerklijkt-door-movavi-beste-seo-titel/"><u>Kostenloze TIFF Naar JPG Omzetting Online Verwerklijkt Door Movavi - Beste SEO Titel</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/tech-talk-titans-who-reigns-supreme-google-bard-or-bing-chat/"><u>Tech Talk Titans: Who Reigns Supreme, Google Bard or Bing Chat?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-checklist-for-nfl-live-broadcasting/"><u>The Ultimate Checklist for NFL Live Broadcasting</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/trasforma-file-alaw-a-formato-wav-gratuito-con-web-online-movavi/"><u>Trasforma File Alaw a Formato Wav Gratuito Con Web Online - Movavi</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-best-lyric-video-templates-for-after-effects/"><u>Updated 2024 Approved Best Lyric Video Templates for After Effects</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wmawebm-movavi/"><u>원격 WMA/WEBM 변환 서비스 - 무료, Movavi 도구</u></a></li>
+</ul></div>
 

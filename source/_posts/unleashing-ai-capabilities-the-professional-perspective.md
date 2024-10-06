@@ -1,7 +1,7 @@
 ---
 title: "Unleashing AI Capabilities: The Professional Perspective"
-date: 2024-08-25T23:04:34.669Z
-updated: 2024-08-26T23:04:34.669Z
+date: 2024-09-29T00:14:35.016Z
+updated: 2024-10-06T03:57:19.684Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/11a5b5bdf5c605b4fbfac8e2beadd347faae794edca9da0873a40e49d2c700e6.jpg
@@ -28,8 +28,6 @@ it. You don’t have to wait for it to be modeled,” Washburn said. “That can
 Enable Your Data Strategy for Mission Success SIMPLIFY COMPLEX DATA & ACHIEVE DATA AGILITY LEARN HOW WE SUPPORT THE DOD & IC AT: MarkLogic.com/national-security Get a faster, trusted way to unlock value from complex data – and achieve data agility to meet mission requirements now and in the future. Our unified data platform combines a multi-model database and semantic AI technology to provide a comprehensive data layer with strong security, integration, and scale. PROVIDED BY MARKLOGIC 9 to have that understanding until you tell it. And I think the approach that you want to take to make that fast and consistent is to tell the machine the same way it’s applied to a machine learning model. And applying metadata is a quick way to do just that.” 
 
 Through an artiﬁcial intelligence set of principles, the Biden administration is urging agencies to move on from talking about AI and instead start using it and other automated tools more widely in day-to-day work. The “Blueprint for an AI Bill of Rights” outlines what agencies should do to ensure AI tools designed, developed and deployed — in and out of government — align with privacy rights and civil liberties. The administration, as part of these efforts, is also working on new federal procurement policy and guidance, to ensure agencies buy and implement AI and automation tools that are transparent and free of bias. Sorelle Friedler, assistant director for data and democracy at the White House Ofﬁce of Science and Technology Policy, said that the blueprint is “putting the weight of the White House” behind a policy area that’s provoked a lot of conversation but hasn’t led to widespread implementation across government. “We are not really breaking new ground but adding to the conversation and helping us move the conversation forward, from principles into practice,” Friedler said at a Brookings Institution event about the bill of rights. The Biden administration also released a technical companion to the blueprint that serves as a roadmap for implementing transparent and accountable AI tools in government. “We are also trying to live up to that across the federal government,” Friedler said. The nonbinding policy document puts a governmentwide focus on automated systems White House aims to accelerate government AI use through ‘bill of rights’ BY JORY HECKMAN We are not really breaking new ground but adding to the conversation and helping us move the conversation forward, from principles into practice. — Sorelle Friedler, Assistant Director for Data and Democracy, OSTP White House releases AI roadmap 10 FEDERAL NEWS NETWORK EXPERT EDITION: DELIVERING ON ARTIFICIAL INTELLIGENCE’S POTENTIAL 
-
-
 
 [\_Hlk122531495](https://tools.techidaily.com/abbyy/products/)
 
@@ -65,8 +63,6 @@ Through an artiﬁcial intelligence set of principles, the Biden administration 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -74,7 +70,31 @@ Through an artiﬁcial intelligence set of principles, the Biden administration 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-elevate-your-videography-instagram-captioning-techniques/"><u>[New] Elevate Your Videography Instagram Captioning Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-attention-grabber-designer/"><u>[Updated] Innovative Attention Grabber Designer</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quintessential-play-by-radio-stories/"><u>[Updated] Quintessential Play-by-Radio Stories</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/comparing-the-latest-iphones-key-distinctions-between-iphone-14-pro-and-iphone-15-pro/"><u>Comparing the Latest iPhones: Key Distinctions Between iPhone 14 Pro and iPhone 15 Pro</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/convert-videos-to-avi-format-at-no-cost-with-the-macx-free-video-transcoder/"><u>Convert Videos to AVI Format at No Cost with the MacX Free Video Transcoder</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-arduino-mega-2560-driver-in-minutes/"><u>Download and Install Arduino Mega 2560 Driver in Minutes!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/exclusive-deal-save-up-to-43-on-macxdvd-with-official-2022-promo-code/"><u>Exclusive Deal: Save Up To 43% On MacXDVD With Official 2022 Promo Code</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/handbrake-freezing-up-solving-the-issue-of-full-cpu-usage-and-preventing-system-failures/"><u>Handbrake Freezing Up: Solving the Issue of Full CPU Usage and Preventing System Failures</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c210-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Nokia C210 Phone Without Password?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h265-hevc-video-on-xiaomi-redmi-note-13-proplus-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/learn-how-to-convert-your-dvds-into-a-cutting-edge-imovie-edit-for-zero-cost/"><u>Learn How to Convert Your DVDs Into a Cutting-Edge iMovie Edit for Zero Cost!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/learn-to-conduct-zoom-webinars-a-newbies-blueprint/"><u>Learn to Conduct Zoom Webinars A Newbie's Blueprint</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-for-a-perfect-transfer-adding-mp4-videos-to-itunes-successfully-every-time/"><u>Step-by-Step Guide for a Perfect Transfer: Adding MP4 Videos to iTunes Successfully Every Time</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-inside-scoop-on-top-tier-computer-systems-by-toms-experts/"><u>The Inside Scoop on Top-Tier Computer Systems by Tom's Experts</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-10-unforgettable-romance-films-free-downloads-from-iconic-hollywood/"><u>Top 10 Unforgettable Romance Films: Free Downloads From Iconic Hollywood</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-recommended-tools-for-preparing-your-iphone-for-the-latest-ios-17-update/"><u>Top Recommended Tools for Preparing Your iPhone for the Latest iOS 17 Update</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-the-missing-cursor-anomaly-on-your-windows-11-devices-touchpad/"><u>Troubleshooting the Missing Cursor Anomaly on Your Windows 11 Device's Touchpad</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

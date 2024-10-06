@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Website's Analytics with Advanced Tracking"
-date: 2024-08-25T23:05:47.071Z
-updated: 2024-08-26T23:05:47.071Z
+date: 2024-10-01T18:58:36.506Z
+updated: 2024-10-05T21:30:23.073Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6befd60c173a5cd8b8d9dfcf598dea7f7e1558ad2a50419820d4a5c540b52039.jpg
@@ -26,8 +26,6 @@ Platform Options On-premise Servers SaaS Cloud Picking the perfect platform (for
 From simple documents to valuable intelligence Anyone who has worked with faxed documents in the past can relate to this unfortunate scenario: Staﬀ return to the clinic on Monday morning and ﬁnd documents from the fax machine strewn all over the ﬂoor. Orcutt has witnessed this common occurrence. Electronic transition of referrals can help; however, the electronic documents are still sitting in the queue. “They’re a little neater, but they can still be lost in the digital abyss, and staﬀ members still might transcribe patient and insurance information incorrectly,” he pointed out. Advanced technologies such as IDP and RPA can help healthcare organizations bring referral management to the next level. These technologies can transform data from business and clinical-critical documents into actionable intelligence, driving real-time automation and improved clinical and revenue cycle outcomes. IDP, for example, employs advanced technologies such as optical character recognition, natural language processing and machine learning to automate the extraction, interpretation and processing of data from various documents. By streamlining manual document-related tasks, IDP enhances eﬃciency, accuracy and compliance. The technology also helps add signiﬁcant speed to the referral management process. Consider the following: “If there’s a spreadsheet, the technology could do a thousand checks before our human can do one simple check. There’s logic built into it, so the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next,” Rodgers explained. \[With intelligent document processing,\] the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next.” ROBERT RODGERS [What is Intelligent Document Processing,](https://tools.techidaily.com/abbyy/products/) [and How Does It Work?](https://tools.techidaily.com/abbyy/products/) Learn what this technology can do for your organization. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES STREAMLINING YOUR REFERRALS 
 
 www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive signiﬁcant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA, and oﬃces in 12 countries, and is the [Oﬃcial Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/](https://tools.techidaily.com/abbyy/products/) and follow us on LinkedIn, Twitter , Facebook and Instagram. Reaching the holy grail: Straight-through processing for referrals Advanced technologies might be the antidote to long- held referral management challenges and can drive the customer-service mentality many forward-thinking companies have embraced. Indeed, IDP automatically pulls the patient and referral information from the fax or email attachment and populates the electronic health record or appointment system, eliminating the need to manually enter data. Such technology has been shown to save a provider 10 minutes per referral. This technology could potentially result in “straight-through processing,” automating the entire referral process all the way to scheduling an appointment with the specialist. “Sure, some organizations might not use the technology to go all the way to scheduling a patient right away, but they might send the patient an SMS text that links to the specialist’s calendar and enables the patient to set up their appointment,” Rodgers noted. The technology not only results in cost avoidance by eliminating the need to rely on staﬀ to process referrals but can also potentially bring in additional revenue. Consider the following: By leveraging this technology, HCOs could optimize the revenue that they collect from diagnostic services. “If your HCO has an MRI machine, and your equipment is underutilized, the HCO will be missing out on revenue. Being eﬀective at taking in external referrals to ensure you are highly utilizing your MRI machine can result in additional net revenue for many specialists,” he pointed out. The technology also holds signiﬁcant promise for patients like Mary, who could have experienced much less anxiety, not to mention improved clinical results, if she had been able to quickly schedule an appointment with a specialist. These beneﬁts can put HCOs in a position to succeed. “The technology not only closes the gap on the leakage, but it also enables healthcare organizations to get a one-up on competitors. The patient’s only going to wait so long before they’re going to go somewhere else. Organizations risk tarnishing their reputations if they consistently make patients wait,” Rodgers concluded. [Contact us](https://tools.techidaily.com/abbyy/products/) for a demo of referral management. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES AUTOMATING YOUR PROCESSES 
-
-
 
 [abbyy.com](https://tools.techidaily.com/abbyy/products/)
 
@@ -69,8 +67,6 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,7 +74,31 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[New] In 2024, A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-psychology-of-crafting-engaging-podcast-intros/"><u>[Updated] The Psychology of Crafting Engaging Podcast Intros</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-circular-innovator-box/"><u>2024 Approved Circular Innovator Box</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/apng-movavin/"><u>APNGファイル自動変換サービスオンラインで不可能に? - Movaviの安心無料オプショn</u></a></li>
+<li><a href="https://windows11.techidaily.com/brighten-up-a-step-by-step-guide-to-an-eye-catching-cursor/"><u>Brighten Up: A Step-by-Step Guide to an Eye-Catching Cursor</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-downloading-transform-your-videos-from-m4v-into-m4a-at-no-cost-with-our-easy-to-use-tool/"><u>Effortless Downloading: Transform Your Videos From M4V Into M4A at No Cost with Our Easy-to-Use Tool</u></a></li>
+<li><a href="https://techtrends.techidaily.com/hochleistungs-dvd-zu-mpeg4-konvertierung-auf-mac-mit-handbrake-macos-high-sierra-download/"><u>Hochleistungs-DVD Zu MPEG4 Konvertierung Auf Mac Mit Handbrake (macOS High Sierra) Download</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-perfect-loop-technique-for-all-your-youtube-favorites/"><u>In 2024, The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
+<li><a href="https://win-dash.techidaily.com/linksys-ae2500-driver-software-instant-download-and-support/"><u>Linksys AE2500 Driver Software: Instant Download and Support</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/movavijpegarwf/"><u>Movaviで簡単JPEGをARWFに自由費用で変換</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/reaching-new-heights-with-chatgpts-token-limit/"><u>Reaching New Heights with ChatGPT's Token Limit</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/safeguarded-multimedia-management-with-movavi-the-ultimate-software-experience/"><u>Safeguarded Multimedia Management with Movavi - The Ultimate Software Experience</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-guide-to-merge-sony-and-nintendo-joy-cons/"><u>Step-by-Step Guide to Merge Sony & Nintendo Joy-Cons</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/web-based-mkv-wav-movavi/"><u>Web-Based 제공: MKV 파일을 무료로 WAV 형식으로 자동 변환 - Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wi-fi-mov-wav/"><u>무료 Wi-Fi MOV WAV 변환 - 오픈소스 제공 솔루션</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/3/"><u>빠르고 쉽게 성공한다는 3가지 동영상 모자이크 및 비주얼 스타일의 전문 프로그램</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3-asf/"><u>오피스에서 제공하는 MP3 ASF 무료 변환 도구 - 모바이비</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

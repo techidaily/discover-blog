@@ -1,40 +1,22 @@
 ---
 title: Robert Youngjohns Named New Board Chairman at ABBYY, Steering Company's Future Growth Initiatives
-date: 2024-09-05T11:11:22.795Z
-updated: 2024-09-06T11:11:22.795Z
+date: 2024-10-03T04:23:16.035Z
+updated: 2024-10-06T00:36:38.891Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9f379346dab6d9afc35fd26439e264f20b751a6d300caec81d8cb92afef3805.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Robert Youngjohns Named New Board Chairman at ABBYY, Steering Company's Future Growth Initiatives
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Appoints Renowned Tech Executive Robert Youngjohns as Chairman of the Board to Drive Growth Strategy
 
 April 20, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Industry veteran elected to help accelerate ABBYY’s Digital Intelligence strategy_
 
 ABBYY, a Digital Intelligence company, has appointed industry veteran Robert Youngjohns as Chairman of the Board. In this position Robert will work with the CEO and executive management team to shape ABBYY’s global enterprise growth strategy and execution.
@@ -73,8 +55,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,4 +62,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-essential-free-mac-apps-to-perfect-your-tiktok-videos/"><u>[New] Essential Free Mac Apps to Perfect Your TikTok Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-separation-to-symbiosis-logic-pro-x-audio-blending/"><u>[New] From Separation To Symbiosis Logic Pro X Audio Blending</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-no-limit-record-media-software-for-2024/"><u>[Updated] No-Limit Record Media Software for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unfolding-the-future-drones-in-modern-and-next-era/"><u>[Updated] Unfolding the Future Drones in Modern and Next Era</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-hero5-session-review/"><u>2024 Approved GoPro Hero5 Session Review</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-vantage-earned-trend-setter-title-at-kmworlds-2n1-trending-product-awards/"><u>ABBYY Vantage Earned 'Trend Setter' Title at KMWorld's 2N1 Trending Product Awards</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-advanced-text-recognition-technology-integrated-into-the-3m-360-encompass-system-revolutionizes-healthcare-documentation/"><u>ABBYY's Advanced Text Recognition Technology Integrated Into the 3M 360 Encompass System Revolutionizes Healthcare Documentation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-top-financial-executive-neil-murphy-discusses-growth-opportunities/"><u>ABBYY's Top Financial Executive Neil Murphy Discusses Growth Opportunities</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/advancing-logistics-boost-efficiency-with-smart-automation-solutions/"><u>Advancing Logistics: Boost Efficiency with Smart Automation Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/amelioration-de-la-rpa-par-lintegration-dune-solution-dintelligence-procedurale-la-decouverte-abbyy/"><u>Amélioration De La RPA Par L'Intégration D'une Solution D'Intelligence Procédurale : La Découverte ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-lead-generation-with-cookiebot-technology/"><u>Automated Lead Generation with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-traffic-generation-with-cookiebot-the-efficient-way/"><u>Automated Traffic Generation with Cookiebot: The Efficient Way</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/automated-with-cookiebot-enhance-your-digital-marketing-strategies/"><u>Automated with Cookiebot: Enhance Your Digital Marketing Strategies</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boost-web-analytics-with-cookiebot-integration-solutions/"><u>Boost Web Analytics with Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/combining-obs-and-zoom-a-step-by-step-guide/"><u>Combining OBS and Zoom A Step-by-Step Guide</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-infinix-zero-30-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Infinix Zero 30 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-itel-s23-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Itel S23 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-if-you-want-to-replace-or-delete-the-sky-pictures-or-background-media-then-give-a-quick-read-to-this-article-for-effective-solutions/"><u>New 2024 Approved If You Want to Replace or Delete the Sky Pictures or Background Media, Then Give a Quick Read to This Article for Effective Solutions</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-top-10-anime-movies-of-all-time-for-2024/"><u>Updated Top 10 Anime Movies of All Time for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

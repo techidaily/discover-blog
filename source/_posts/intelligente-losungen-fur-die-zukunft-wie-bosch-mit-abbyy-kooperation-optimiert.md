@@ -1,28 +1,16 @@
 ---
 title: Intelligente Lösungen Für Die Zukunft - Wie Bosch Mit ABBYY Kooperation Optimiert
-date: 2024-09-05T11:11:21.801Z
-updated: 2024-09-06T11:11:21.801Z
+date: 2024-09-30T16:11:31.929Z
+updated: 2024-10-05T19:41:14.291Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Intelligente Lösungen Für Die Zukunft - Wie Bosch Mit ABBYY Kooperation Optimiert
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bosch setzt auf intelligente Automatisierung von ABBYY
 
 21\. Juni 2022
@@ -43,6 +31,13 @@ Durch den Einsatz der IDP-Lösung von ABBYY kann die Bosch Gruppe den Arbeitsauf
 
 „Wir sind begeistert davon, welche Wirkung unsere IDP-Lösungen in den inhaltszentrierten Prozessen der Bosch Gruppe erzielt haben,” sagt Markus Pichler, Vice President Sales Europe bei ABBYY. „Wir freuen uns darauf, die Bosch Gruppe weiterhin mit unseren Technologien bei ihren digitalen Transformationsinitiativen zu unterstützen und zu einem greifbaren Mehrwert für das Unternehmen beizutragen.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -53,28 +48,17 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -82,11 +66,18 @@ _ABBYY_
 [bianca.stupp@abbyy.com](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Über die Bosch Gruppe
 
 Die Bosch-Gruppe ist ein international führendes Technologie- und Dienstleistungsunternehmen mit weltweit rund 401 300 Mitarbeitern (Stand: 31.12.2021). Sie erwirtschaftete im Geschäftsjahr 2021 nach vorläufigen Zahlen einen Umsatz von 78,8 Milliarden Euro. Die Aktivitäten gliedern sich in die vier Unternehmensbereiche Mobility Solutions, Industrial Technology, Consumer Goods sowie Energy and Building Technology. Als führender Anbieter im Internet der Dinge (IoT) bietet Bosch innovative Lösungen für Smart Home, Industrie 4.0 und Connected Mobility. Bosch verfolgt die Vision einer nachhaltigen, sicheren und begeisternden Mobilität. Mit seiner Kompetenz in Sensorik, Software und Services sowie der eigenen IoT-Cloud ist das Unternehmen in der Lage, seinen Kunden vernetzte und domänenübergreifende Lösungen aus einer Hand anzubieten. Strategisches Ziel der Bosch-Gruppe sind Lösungen und Produkte für das vernetzte Leben, die entweder über künstliche Intelligenz (KI) verfügen oder mit ihrer Hilfe entwickelt oder hergestellt werden. Mit innovativen und begeisternden Produkten sowie Dienstleistungen verbessert Bosch weltweit die Lebens-qualität der Menschen. Bosch bietet „Technik fürs Leben“. Die Bosch-Gruppe umfasst die Robert Bosch GmbH sowie ihre rund 440 Tochter- und Regionalgesellschaften in rund 60 Ländern. Inklusive Handels- und Dienstleistungspartnern erstreckt sich der weltweite Fertigungs-, Entwicklungs- und Vertriebsverbund von Bosch über fast alle Länder der Welt. Mit ihren weltweit mehr als 400 Standorten ist die Bosch-Gruppe seit Frühjahr 2020 CO2-neutral. Basis für künftiges Wachstum ist die Innovationskraft des Unternehmens. Bosch beschäftigt weltweit rund 76 300 Mitarbeiter in Forschung und Entwicklung an 128 Standorten, davon mehr als 38 000 Software-Entwickler.
@@ -98,11 +89,12 @@ Das Unternehmen wurde 1886 als „Werkstätte für Feinmechanik und Elektrotechn
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Andreas Magnussen
 
 _Bosch_
@@ -117,8 +109,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -126,4 +116,18 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-verdict-on-screen-recording-does-obs-surpass-fraps/"><u>[New] 2024 Approved The Verdict on Screen Recording Does OBS Surpass Fraps?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tips-for-prolonging-gopros-energy-stamina/"><u>[Updated] Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-step-by-step-guide-hassle-free-conversion-from-smi-to-srt-and-back/"><u>1. Step-by-Step Guide: Hassle-Free Conversion From SMI to SRT, & Back!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-ultimate-guide-to-tuning-handbrake-preferences-for-optimal-dvd-conversion/"><u>1. Ultimate Guide to Tuning HandBrake Preferences for Optimal DVD Conversion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-quick-guide-downloading-and-setting-up-vrecord/"><u>2024 Approved Quick Guide Downloading & Setting Up VRecord</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027748113-windows-113/"><u>高性能ビデオ抽出ソフトウェア：Windows 11でおすすめの上位3品種とその利点</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029021465-pc/"><u>家庭用PCやスマホで「フォートナイト」ゲーム録画法：初心者向けガイド</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-oppo-a18-by-fonelab-android-recover-music/"><u>How to recover old music from your Oppo A18</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-conquer-online-video-platforms-zooming-into-youtube-and-fb-lives/"><u>In 2024, Conquer Online Video Platforms Zooming Into YouTube & FB Lives</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/precision-and-professionalism-a-vr-recording-handbook/"><u>Precision and Professionalism A VR Recording Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-english-grammars-secrets-insights-from-a-seasoned-esl-artist/"><u>Unlocking English Grammar's Secrets: Insights From a Seasoned ESL Artist</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unraveling the Mystery: Understanding Why Users Drop Out of Onboarding Journeys"
-date: 2024-08-25T23:06:40.196Z
-updated: 2024-08-26T23:06:40.196Z
+date: 2024-09-30T20:32:27.104Z
+updated: 2024-10-06T02:22:49.340Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d2d7880df5db12ed56d9d21b8c44a69dd2fd9e87e98be5353e65c069e24fae8.jpg
@@ -24,6 +24,13 @@ Who hasn't experienced it: you start a registration process online with a compan
 
 Nine out of ten companies [report some form of registration process abandonment](https://tools.techidaily.com/abbyy/products/), and in times of economic uncertainty, the consequences of abandonment can be enormous. These failures to acquire customers impact the company reputation and the bottom line. According to our recent [study](https://tools.techidaily.com/abbyy/products/), business leaders believe they could increase revenue by 26 percent and customer acquisition by 29 percent if the abandonment rate was reduced by 50 percent. Fortunately, there are ways to ensure better results.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The right mix of technology and human interaction is the key
 
 Entering copious amounts of data into forms, being pushed from one automated process to the next, or not getting answers to questions because the digital process didn’t give you the option to talk to a human being… all these annoyances lead to abandonment of the process. Due to the abundance of automations, many companies neglect that people want to be involved in the process and understand why they’re being asked to enter certain information.
@@ -31,18 +38,18 @@ Entering copious amounts of data into forms, being pushed from one automated pro
 Streamlining and modifying the onboarding process through use of new technologies improves the customer experience by up to 43 percent and increases retention by over a third (37 percent). However, it is important to strike the right balance between automated processes, customer involvement and engagement, and relationship nurturing to prevent customers from churning.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### It all comes down to the right tools
 
 The results of our study confirm this: processes that are far too lengthy (29 percent), have too many manual steps (26 percent), and a cumbersome proof-of-identity process (26 percent) cause people to drop out during registration. Therefore, to streamline processes and make it as easy as possible for customers to submit information and prove their identity, the right tools and technology are critical.
 
 Document-centric [identity proofing](https://tools.techidaily.com/abbyy/products/) and verification technologies, used in combination with [intelligent document processing](https://tools.techidaily.com/abbyy/products/) technologies, are key components of digital onboarding today. Among the companies surveyed on this, 21 percent say they already plan to use intelligent process automation technologies in onboarding. For the potential customer, these technologies are engaging, they build trust, and speed up the process with simple steps. Yet, due to the complex technology invisible to users, they don’t compromise security. This in turn improves the customer experience and reduces the dropout rate. So ultimately, everyone emerges a winner.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### Reduce the complexity of proving identity
 
 Most of the time, the first onboarding hurdle starts with proving an identity. Is this person really who they say they are? Security standards are extremely high, and one or two checks like a simple selfie are no longer enough. Even social media services like [Instagram](https://www.bbc.com/news/technology-63544332), which generates millions of new accounts in every few months, with hundreds of thousands of them being created by bots, are also grappling with this issue.
@@ -53,15 +60,19 @@ Combining document-centric identify proofing with document-centric identify affi
 
 This simple process eliminates the back and forth with customers, and there is no manual processing that takes days. Instead, users are engaged and part of the process. They can easily and quickly provide the necessary information, and it can all occur within a matter of minutes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### State of Intelligent Automation Report: Customer Onboarding Drivers and Pain Points
 
 Report
 
 [Download report](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Is everything working well, and if not—why not?
 
 Before trying to optimize processes or build on existing ones, it is first necessary to know how the current processes are actually performing. Oftentimes, there is some idea or some data to indicate which area should be improved. Often this is influenced by bias, and rarely on the truth and full data set. Therefore, the first step is to gain usable insights into the onboarding process in order to uncover any weaknesses and also to get an overview of the areas in which targeted improvements can be made. [Process intelligence tools](https://tools.techidaily.com/abbyy/products/), along with process and task mining, are designed to do exactly that.
@@ -74,9 +85,6 @@ Click here to get to know more about ABBYY’s survey on customer onboarding dri
 
 ![Steve Cronin 110X110 (3)](https://static4.abbyy.com/abbyycommedia/37000/steve-cronin_110x110-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 Steven Cronin
 
 Senior Vice President of Customer Excellence at ABBYY
@@ -84,17 +92,18 @@ Senior Vice President of Customer Excellence at ABBYY
 Steven Cronin is Senior Vice President of Customer Excellence at ABBYY. He has spent the last 25 years in enterprise software leading customer-facing initiatives. As an industry veteran and expert in holistic customer-related business processes, he truly understands that an exceptional customer experience is the key to a successful and long-term business relationship.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
 
 [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Subscribe for updates
 
 Get updated on the latest insights and perspectives for business & technology leaders
@@ -143,8 +152,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +159,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screencast-essentials-the-ultimate-beginners-tutorial-for-2024/"><u>[New] Screencast Essentials The Ultimate Beginner's Tutorial for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-instagram-video-bordering-for-2024/"><u>[Updated] Mastering the Art of Instagram Video Bordering for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-enhance-financial-sector-competitiveness-with-abbyy-checklists-gain-an-edge/"><u>1. Enhance Financial Sector Competitiveness with ABBYY Checklists - Gain an Edge</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-announces-key-milestones-and-achievements-in-second-quarter-of-2018/"><u>ABBYY Announces Key Milestones and Achievements in Second Quarter of 2018</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-broadens-worldwide-reach-with-advanced-ai-technology-offerings/"><u>ABBYY Broadens Worldwide Reach with Advanced AI Technology Offerings</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-issue-how-to-successfully-cast-media-from-your-pc-to-another-device-in-windows-10/"><u>Fixing the Issue: How to Successfully Cast Media From Your PC to Another Device in Windows 10</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-deactivating-voice-navigation-in-your-samsung-television-setup/"><u>Guide to Deactivating Voice Navigation in Your Samsung Television Setup</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-embracing-sleep-analysis-transformed-my-rest-insights-from-a-skeptic-to-advocate/"><u>How Embracing Sleep Analysis Transformed My Rest: Insights From a Skeptic to Advocate</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-oppo-reno-9a-easily-by-drfone-android/"><u>In 2024, How To Unlock a Oppo Reno 9A Easily?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-your-windows-11-mic-problems-with-these-simple-tips/"><u>Resolve Your Windows 11 Mic Problems with These Simple Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/start-your-journey-to-savvy-social-analytics-on-facebook-for-2024/"><u>Start Your Journey to Savvy Social Analytics on Facebook for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unlock-web-success-enhance-visibility-using-our-cutting-edge-cookiebot-tech-solutions/"><u>Unlock Web Success: Enhance Visibility Using Our Cutting-Edge Cookiebot Tech Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unlocking-productivity-secrets-with-task-mining-techniques-for-better-automation-guidance-from-abbyy-experts/"><u>Unlocking Productivity Secrets with Task Mining Techniques for Better Automation | Guidance From ABBYY Experts</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unraveling-the-distinctions-ocr-vs-idp-a-detailed-comparison/"><u>Unraveling the Distinctions: OCR Vs. IDP - A Detailed Comparison</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wie-funktioniert-die-intelligente-dokumentenerfassung-von-abbyy-ein-tiefer-blick-in-fortschrittliche-textanalyse/"><u>Wie Funktioniert Die Intelligente Dokumentenerfassung Von ABBYY: Ein Tiefer Blick in Fortschrittliche Textanalyse</u></a></li>
+</ul></div>
 

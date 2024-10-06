@@ -1,7 +1,7 @@
 ---
 title: ABBYY Vantage Earned 'Trend Setter' Title at KMWorld's 2N1 Trending Product Awards
-date: 2024-08-25T23:05:33.146Z
-updated: 2024-08-26T23:05:33.146Z
+date: 2024-10-03T18:04:51.318Z
+updated: 2024-10-05T20:17:17.207Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c41e214e42161b19b3ba596b247b1528c5c85cbd29aaa92283a320b0b166cc8.jpg
@@ -21,6 +21,13 @@ We are proud to share that our latest innovation, [ABBYY Vantage,](https://tools
 
 ABBYY Vantage is the first no-code, cloud-based platform that addresses organizations’ need to make quicker decisions while increasing productivity, accelerating their scale of innovation, and using technology in new ways—all with less time, talent shortages, and new remote working conditions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Looking for a smarter way to automate document processes?
 
 There's a skill for that.
@@ -35,6 +42,13 @@ Supplementing Vantage is the ABBYY Marketplace, the first digital marketplace fo
 
 ![Woman with glasses working on laptop](https://static1.abbyy.com/abbyycommedia/33540/woman-laptop-1-new.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ABBYY Marketplace comes pre-loaded with skills covering a variety of use cases and industries, with both ABBYY developed skills and skills developed by our partners—hence our saying, “There’s a skill for that!” Imagine seeking to process business tax documents and seeing skills available from leading auditors and consultants that are experts in processing that content, ready for you to consume. More than 500 organizations have already provided overwhelming, positive feedback about our new way of document processing and over 100 successful trials have been started since general release on August 9th, attracting several businesses’ interest in the solutions, including four of the top U.S. banks and many cloud-based companies.
 
 Additionally, we have connectors available for many systems and automation tools today, including ABBYY developed connectors for [Blue Prism](https://tools.techidaily.com/abbyy/products/), [UiPath](https://tools.techidaily.com/abbyy/products/), [Alteryx](https://tools.techidaily.com/abbyy/products/), [Microsoft (Power Automate)](https://marketplace.abbyy.com/root/abbyy-vantage-connector-microsoft-power-automate/) and partner-built connectors for [Kryon](https://tools.techidaily.com/abbyy/products/), [Cherrywork®](https://tools.techidaily.com/abbyy/products/), [Pipefy,](https://tools.techidaily.com/abbyy/products/) [Cognigy](https://tools.techidaily.com/abbyy/products/), [Toca](https://tools.techidaily.com/abbyy/products/), and [Netcontent®.](https://tools.techidaily.com/abbyy/products/)Several other vendor connectors—including Automation Anywhere, PEGA and NICE—will be added over the next few months, as well. Why struggle with complex design and setup tools, scripting, training, business rules, and exception handling when ABBYY has built it for you already and delivered it to you as an easily consumable and deployable skill?
@@ -45,13 +59,24 @@ Join us at our upcoming [virtual ABBYY Vantage Broadcast](https://tools.techidai
 
 ![KMWorld Trend Setting Products of 2021 Badge | ABBYY Vantage](https://static1.abbyy.com/abbyycommedia/34233/km-world-2021-winners-badge-small.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [KMWorld](http://www.kmworld.com/) is the leading information provider serving the Knowledge Management systems market and covers the latest in Content, Document and Knowledge Management, informing more than 21,000 subscribers about the components and processes—and subsequent success stories—that together offer solutions for improving business performance. KMWorld is a publishing unit of [Information Today, Inc](http://www.infotoday.com/).
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -106,8 +131,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,4 +138,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-windows-11-capture-top-eight-tools-ranked/"><u>[New] 2024 Approved Windows 11 Capture Top Eight Tools Ranked</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skys-limit-for-your-visual-stories-unlimited-free-options-and-premium-choices/"><u>[New] Sky's Limit for Your Visual Stories Unlimited Free Options and Premium Choices</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029671364-bluetooth/"><u>「Bluetoothイヤホンを使用した容易な音声記録手順ガイド」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027787767-xmedia-recode/"><u>動画中の音声抽出方法とXMedia Recodeを使った代用戦略</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029462844-wmv/"><u>簡単WMVファイル結合ガイド：非劣化で楽しい連結技術</u></a></li>
+<li><a href="https://win-blog.techidaily.com/addressing-the-sims-4-graphics-failure-effective-strategies-for-a-smooth-playthrough/"><u>Addressing the 'Sims 4 Graphics Failure: Effective Strategies for a Smooth Playthrough'</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-your-intel-uhd-graphics-driver-today-perfect-for-windows-1011-users/"><u>Download and Update Your Intel UHD Graphics Driver Today - Perfect for Windows 10/11 Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-nokia-g310-frp-bypass-by-drfone-android/"><u>In 2024, About Nokia G310 FRP Bypass</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leaders-in-next-gen-sensory-devices-for-2024/"><u>Leaders in Next-Gen Sensory Devices for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/master-the-art-of-resolving-endless-reboots-in-windows-11-effortlessly/"><u>Master the Art of Resolving Endless Reboots in Windows 11 Effortlessly</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-32-no-cost-backup-solutions-expertly-rated-and-analyzed/"><u>Top 32 No-Cost Backup Solutions - Expertly Rated & Analyzed</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>What is Geo-Blocking and How to Bypass it On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027045468-youtube/"><u>YouTube動画のオリジナル音声ファイルを安全にダウンロード・保管する詳細ガイド</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726026913788-youtubepc/"><u>YouTubeショート動画改変の秘訣：PC上でお金をかけずにプロフェッショナルな編集</u></a></li>
+</ul></div>
 

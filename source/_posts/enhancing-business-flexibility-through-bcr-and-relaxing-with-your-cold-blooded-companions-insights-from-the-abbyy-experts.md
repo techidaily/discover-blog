@@ -1,7 +1,7 @@
 ---
 title: Enhancing Business Flexibility Through BCR & Relaxing with Your Cold-Blooded Companions - Insights From the ABBYY Experts
-date: 2024-08-25T23:06:31.683Z
-updated: 2024-08-26T23:06:31.683Z
+date: 2024-10-05T00:19:15.754Z
+updated: 2024-10-05T16:53:41.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9f379346dab6d9afc35fd26439e264f20b751a6d300caec81d8cb92afef3805.jpg
@@ -108,6 +108,13 @@ The owner has to thumb through this book carefully to find a contact. When she n
 
 To have your business contacts always to hand, you can digitize them using [BCR](http://qrs.ly/ip56xfe), an app that captures business cards and stores them on your mobile device. Capturing cards with [BCR](http://qrs.ly/ip56xfe) is [six times faster than typing the details manually](https://tools.techidaily.com/abbyy/products/). You can also instantly share your business cards with your colleagues, access your repository from iOS or Android devices or from a desktop computer, create Excel reports, and perform lots of other useful manipulations.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Speedtest**
 
 Our favourite app this week comes from [Speedtest](http://speedtest.net/), probably the most popular[resource](http://speedtest.net/) for measuring the speed of your Internet connection.
@@ -116,15 +123,23 @@ When you open the app on your device, you will see a large GO button. Tap it and
 
 ![Speedtest on mobile](https://static1.abbyy.com/abbyycommedia/31230/11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Speedtest results on mobile](https://static1.abbyy.com/abbyycommedia/31231/12.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![change server Speedtest](https://static1.abbyy.com/abbyycommedia/31232/13.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Should you want to double-check, you can change the remote server that is contacted by the app. Simply tap **CHANGE SERVER** on the main tab and you will see the available servers and how far they are from you.
 
@@ -135,23 +150,28 @@ You can also change the speed units and the gauge scale.
 ![change gauge scale Speedtest](https://static1.abbyy.com/abbyycommedia/31231/12.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The app will store your past measurements for reference. These can be found by tapping the **Results** tab at the bottom of the screen. History details include date and time, speed, and type of connection.
 
 The[Android](https://play.google.com/store/apps/details?id=org.zwanoo.android.speedtest) version now allows you to check your mobile coverage (still in beta).
 
 ![check mobile coverage in Speedtest](https://static1.abbyy.com/abbyycommedia/31235/16-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![check mobile coverage in Speedtest](https://static1.abbyy.com/abbyycommedia/31236/17-1-300x617.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 The app is available on[iOS](https://itunes.apple.com/at/app/speedtest-net-speed-test/id300704847?mt=8) and[Android](https://play.google.com/store/apps/details?id=org.zwanoo.android.speedtest).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## First-Hand Experience: Advice From a Colleague
 
@@ -180,9 +200,6 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -238,8 +255,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,4 +262,17 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-my-data-if-my-iphone-6-plus-screen-turns-black-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Can I recover my data if my iPhone 6 Plus screen turns black? | Stellar</u></a></li>
+<li><a href="https://windows11.techidaily.com/discover-where-windows-keeps-snaps/"><u>Discover Where Windows Keeps Snaps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-hp-zbook-firefly-15-g8-revolutionizing-mobile-computing-mastery/"><u>Expert Review: The HP ZBook Firefly 15 G8 - Revolutionizing Mobile Computing Mastery</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-pro-max-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 Pro Max to Android? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-s23-tactical-edition-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy S23 Tactical Edition Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/maximierung-der-nutzenfaktoren-von-sharepoint-bei-der-national-park-authority-mit-abbyy/"><u>Maximierung Der Nutzenfaktoren Von SharePoint Bei Der National Park Authority Mit ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pressing-issues-exploring-how-analytics-automation-and-process-intelligence-complement-each-other-in-our-upcoming-webinar/"><u>Pressing Issues: Exploring How Analytics Automation & Process Intelligence Complement Each Other in Our Upcoming Webinar</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/rochling-enhances-sap-accounting-with-standardized-invoice-handling-powered-by-abbyy-company-update/"><u>Röchling Enhances SAP Accounting with Standardized Invoice Handling, Powered by ABBYY - Company Update</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/thriving-in-tech-abbyys-remarkable-60-revenue-surge-earns-spotlight-on-idc-marketscape-report/"><u>Thriving in Tech: ABBYY's Remarkable 60% Revenue Surge Earns Spotlight on IDC MarketScape Report</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-good-the-bad-and-the-ugly-avs-video-editor-review/"><u>Updated In 2024, The Good, the Bad, and the Ugly AVS Video Editor Review</u></a></li>
+</ul></div>
 

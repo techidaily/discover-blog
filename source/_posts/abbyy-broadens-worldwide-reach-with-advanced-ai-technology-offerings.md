@@ -1,40 +1,22 @@
 ---
 title: ABBYY Broadens Worldwide Reach with Advanced AI Technology Offerings
-date: 2024-09-05T11:11:22.019Z
-updated: 2024-09-06T11:11:22.019Z
+date: 2024-10-02T02:28:07.760Z
+updated: 2024-10-05T18:21:58.834Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2749ec4be60f0504bc654efda73e1c737728931364b1005e1f68e26d5f0bf62c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Broadens Worldwide Reach with Advanced AI Technology Offerings
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Expands Global Access to Its AI-enabling Technologies During Q4 2018
 
 February 11, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Strategic Partnerships and Executive Appointments Position the Company for Accelerated Market Penetration of its Content IQ Solutions_
 
 During fourth quarter of 2018, ABBYY content IQ solutions and services became more widely and readily available from new strategic partners and robotic process automation (RPA) vendors’ digital marketplaces. ABBYY’s momentum in forming new partnerships and gaining more enterprise customers is attributed to organizations’ increasing deployment of RPA technologies, and the need to make the software robots smarter. Additionally, new executives were appointed to drive continued global expansion of the company’s AI-enabling technologies, and ABBYY senior executives spoke at major tech conferences about the opportunities for integrating AI capabilities into the enterprise.
@@ -170,8 +152,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -179,4 +159,29 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-srt-file-accessibility-across-computers/"><u>[New] SRT File Accessibility Across Computers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streamline-watching-facebook-videos-on-your-apple-tv-device-for-2024/"><u>[New] Streamline Watching Facebook Videos on Your Apple TV Device for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pioneering-the-igtv-landscape-uploading-expert-tips/"><u>[Updated] Pioneering the IGTV Landscape Uploading Expert Tips</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029671364-bluetooth/"><u>「Bluetoothイヤホンを使用した容易な音声記録手順ガイド」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-successfully-insert-audio-files-into-your-google-slides-presentation/"><u>1. Successfully Insert Audio Files Into Your Google Slides Presentation</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027787767-xmedia-recode/"><u>動画中の音声抽出方法とXMedia Recodeを使った代用戦略</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029462844-wmv/"><u>簡単WMVファイル結合ガイド：非劣化で楽しい連結技術</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/customer-verdict-on-data-restoration/"><u>Customer Verdict on Data Restoration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-rising-to-the-top-essential-youtube-video-seo-techniques-for-success/"><u>In 2024, Rising to the Top Essential YouTube Video SEO Techniques for Success</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-tiktok-visual-enhancements-for-2024/"><u>Mastering the Art of TikTok Visual Enhancements for 2024</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/step-by-step-guide-moving-your-itunes-podcasts-directly-onto-your-mobile-device/"><u>Step-by-Step Guide: Moving Your iTunes Podcasts Directly Onto Your Mobile Device</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/talkshoplive-reviews-and-pro-tips-is-this-the-live-commerce-tool-you-need/"><u>Talkshoplive Reviews & Pro Tips Is This the Live Commerce Tool You Need?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027045468-youtube/"><u>YouTube動画のオリジナル音声ファイルを安全にダウンロード・保管する詳細ガイド</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726026913788-youtubepc/"><u>YouTubeショート動画改変の秘訣：PC上でお金をかけずにプロフェッショナルな編集</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726029745482-youtube/"><u>YouTubeビデオのクローニングガイド:ストレージ手順集</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

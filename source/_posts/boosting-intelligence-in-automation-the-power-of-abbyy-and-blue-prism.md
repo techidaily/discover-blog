@@ -1,7 +1,7 @@
 ---
 title: "Boosting Intelligence in Automation: The Power of ABBYY & Blue Prism"
-date: 2024-08-25T23:04:52.332Z
-updated: 2024-08-26T23:04:52.332Z
+date: 2024-09-30T20:14:09.757Z
+updated: 2024-10-06T02:19:06.796Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c2d24edaaf4b6dd8b5262f3555ac32c929e36e44030c42b24af4ca2cf08c3a5.jpg
@@ -34,6 +34,13 @@ Blue Prism のためにABBYYソリューションで実現できること：
 * 継続的な自動学習とユーザーからのインプットによって、文書の仕分けやデータの抽出作業を自動化できます。
 * 文書、画像やテキストを含むコンテンツ中心の処理作業を自動化するためにRPAの使用範囲を拡大できます。これにより、戦略的なDX（デジタルトランスフォーメーション）の活動をサポートすることができます。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 統合するメリット
 
 ##### コンプライアンスの遵守 
@@ -60,9 +67,6 @@ ABBYY FlexiCapture Connector for Blue Prism（Blue Prism用 FlexiCapture コネ�
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/blue-prism-vector-logo_rev_120px.png?h=23&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
 ##### ニュース 
@@ -75,14 +79,15 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### パンフレット 
 
 #### Blue PrismとABBYY Timelineのテクノロジーアライアンス
@@ -100,8 +105,12 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### ニュース 
 
 #### Blue PrismとABBYY、自動化のパフォーマンスを最適化するProcess Intelligence製品を発表 
@@ -123,8 +132,12 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### ソリューションシート 
 
 #### ペイシェントジャーニーの最新化 
@@ -133,9 +146,6 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### ニュース 
 
 #### Blue PrismとABBYY、自動化のパフォーマンスを最適化するProcess Intelligence製品を発表 
@@ -148,9 +158,6 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ##### パンフレット 
 
 #### Blue PrismとABBYY Timelineのテクノロジーアライアンス
@@ -159,11 +166,25 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### ソリューションシート 
 
 #### ペイシェントジャーニーの最新化 
 
 [ソリューション概要のダウンロード](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 専門家に相談してみませんか？
 
@@ -175,8 +196,6 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,4 +203,21 @@ ABBYY TimelineをBlue Prism Captureに統合し、 包括的なプロセスと�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-media-makers-software-linux-edition/"><u>[Updated] In 2024, Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-strategic-interaction-for-sustainable-subscriber-acquisition/"><u>[Updated] In 2024, Strategic Interaction for Sustainable Subscriber Acquisition</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/beste-kostenlose-dvd-konvertierungstools-fur-windows-1011-im-jahr-2023-vergleich-der-top-3-losungen/"><u>Beste Kostenlose DVD-Konvertierungstools Für Windows 10/11 Im Jahr 2023: Vergleich Der Top 3 Lösungen</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-gratuit-du-codec-h265-pour-une-lecture-video-de-qualite-4k-et-8k-optimisee/"><u>Download Gratuit Du Codec H.265 Pour Une Lecture Vidéo De Qualité 4K Et 8K Optimisée</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-the-official-winx-dvd-ripper-platinum-software-with-a-complimentary-2024-license/"><u>Download the Official WinX DVD Ripper Platinum Software with a Complimentary 2024 License!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-melodic-mastery-mac-studio-tips/"><u>In 2024, Melodic Mastery Mac Studio Tips</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/passo-passo-guida-per-luso-del-programma-windows-dvd-creator/"><u>Passo Passo Guida Per L'Uso Del Programma Windows DVD Creator</u></a></li>
+<li><a href="https://driver-download.techidaily.com/pci-interface-driver-collection-free-downloads-for-windows-users-on-win-111087/"><u>PCI Interface Driver Collection - Free Downloads for Windows Users on Win 11/10/8/7</u></a></li>
+<li><a href="https://win-answers.techidaily.com/revolutionize-your-downloads-proven-methods-to-fix-slow-origin-speed-issues/"><u>Revolutionize Your Downloads: Proven Methods to Fix Slow Origin Speed Issues</u></a></li>
+<li><a href="https://app-tips.techidaily.com/unlock-huge-savings-with-dashlanes-password-manager-snipe-premium-at-just-50-off-today/"><u>Unlock Huge Savings with Dashlane's Password Manager - Snipe Premium at Just 50% Off Today!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unlocking-heic-image-formats-for-seamless-display-on-windows-operating-systems/"><u>Unlocking HEIC Image Formats for Seamless Display on Windows Operating Systems</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-change-aspect-ratio-in-imovie/"><u>Updated In 2024, How to Change Aspect Ratio in iMovie</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-ultimate-list-best-3d-animation-apps-for-android-and-ios-devices-for-2024/"><u>Updated The Ultimate List Best 3D Animation Apps for Android and iOS Devices for 2024</u></a></li>
+</ul></div>
 

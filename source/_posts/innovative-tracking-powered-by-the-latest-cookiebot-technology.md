@@ -1,46 +1,22 @@
 ---
 title: Innovative Tracking Powered by the Latest Cookiebot Technology
-date: 2024-09-05T11:11:23.339Z
-updated: 2024-09-06T11:11:23.339Z
+date: 2024-09-30T18:59:14.477Z
+updated: 2024-10-06T03:49:45.641Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0313aeb6801c4ad054aee4b20ba488ff337dac52c595922f616f6d67ab2cd3c7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Innovative Tracking Powered by the Latest Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY® Group Appoints New CEO
 
 January 19, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Group has announced the appointment of [Ulf Persson](https://tools.techidaily.com/abbyy/products/) \- its current Chairman of the Board - as the Group’s new CEO. Ulf Persson will succeed Sergey Andreev, who has been leading the company for the past 17 years.
 
 ABBYY Group has also announced other changes in its top management. ABBYY Founder David Yang will return as Chairman of the Board, a position he previously held. ABBYY Group former Senior VP and CFO Vadim Tereshchenko’s role has been considerably expanded. He will now hold the positions of COO and CFO as well as that of Deputy CEO.
@@ -71,8 +47,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -80,4 +54,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleash-creativity-with-youtube-clips-make-animation-gifs-easily/"><u>[New] Unleash Creativity with YouTube Clips - Make Animation GIFs Easily</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-the-secrets-to-altering-your-networks-showcase-picture/"><u>[Updated] 2024 Approved Unlocking the Secrets to Altering Your Network's Showcase Picture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transform-your-content-creation-with-the-top-12-vlogger-cams/"><u>[Updated] Transform Your Content Creation with the Top 12 Vlogger Cams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>2024 Approved Designing Youtube Ads That Grab Attention A Compreeher Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-prime-pick-for-iphoneandroid-face-modifications/"><u>2024 Approved Prime Pick for iPhone/Android Face Modifications</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-snapchat-soundtrack-sourcebook-choosing-from-the-best-websites/"><u>2024 Approved Snapchat Soundtrack Sourcebook Choosing From the Best Websites</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1725288366897-dvd-usb-type-c-surface-hubmacbook-chromebook-pixel/"><u>如何将 DVD 转移至 USB Type-C 设备，包括 Surface Hub、MacBook 和 Chromebook Pixel</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-capabilities/"><u>Cookiebot-Driven Performance: Enhancing Your Website's Capabilities</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-effortlessly/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-marketing-success/"><u>Cookiebot-Enabled: Enhancing User Experience & Marketing Success</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-smart-analytics/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Smart Analytics</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cutting-edge-editing-a-magix-video-pro-x-evaluation/"><u>Cutting-Edge Editing A Magix Video Pro X Evaluation</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-from-your-iphone-8-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID from Your iPhone 8?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

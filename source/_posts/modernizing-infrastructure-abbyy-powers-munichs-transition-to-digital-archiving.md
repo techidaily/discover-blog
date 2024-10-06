@@ -1,46 +1,22 @@
 ---
 title: "Modernizing Infrastructure: ABBYY Powers Munich's Transition to Digital Archiving"
-date: 2024-09-05T11:11:23.456Z
-updated: 2024-09-06T11:11:23.456Z
+date: 2024-09-30T05:02:14.968Z
+updated: 2024-10-05T18:10:34.863Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f14703ab2e75a5e3ef7cee5c0a7ee5ddd2895b6cfd7b5126052dee0bd06c1845.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Modernizing Infrastructure: ABBYY Powers Munich's Transition to Digital Archiving
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The City of Munich relies on ABBYY to digitise its building files
 
 July 09, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Europe, a leading provider of document recognition, data capture and linguistic technologies and services, is supporting Munich, the capital of Bavaria, with the digitisation of building files in the Urban Planning and Building Regulations department. The goal of the project is to create a digital base for application processing, thus simplifying the processing of construction applications. The manual work involved in incoming building applications will be kept to a minimum by automatically digitising and classifying files, ensuring a higher throughput rate for application processing.
 
 The Urban Planning and Building Regulations department is the construction authority for Bavaria’s capital. In addition to urban renewal, urban development and land-use planning, the department is responsible for issuing building permits. In this capacity, the department deals with around 6,000 to 7,000 applications for building permits each year. To optimise the permit process, all relevant data is extracted from the incoming building files after digitisation and classification and is then transferred into the e-files. The City of Munich has set up a new working group for building file digitisation, where up to 3 million incoming pages of paper can be processed per year. The new ABBYY FlexiCapture for Mailrooms solution was connected to the e-file sub-module through an interface. Along with the relevant metadata, the scanned documents are then made available for digital use in PDF/A format.
@@ -87,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +70,31 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-edit-instagram-photos-like-a-pro/"><u>[New] How to Edit Instagram Photos Like a Pro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-step-by-step-guide-effortless-iphone-screen-recordings/"><u>[New] In 2024, Step-by-Step Guide Effortless Iphone Screen Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-copyright-laws-and-content-capture/"><u>[New] YouTube Copyright Laws and Content Capture</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/x-dvd/"><u>「簡単操作のマックX DVDコピープログラム：無料版お試しください」</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-glimpse-into-gloom-crafting-art-in-paints-dim-modes/"><u>A Glimpse Into Gloom: Crafting Art in Paint's Dim Modes</u></a></li>
+<li><a href="https://win11.techidaily.com/achieving-top-scores-fixing-lags-in-valorant/"><u>Achieving Top Scores: Fixing Lags in Valorant</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/audacity-mp3cd/"><u>Audacityバーチャルレッスン:ダウンロードから始めて - 録音・音量調整、ノイズ除去、MP3形式への変換及びCD焼付け</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-and-install-the-ultimate-macx-premium-m2ts-to-avimov-video-transcoder-for-mac-os-x/"><u>Download & Install the Ultimate MacX - Premium M2TS to AVI/MOV Video Transcoder for MAC OS X</u></a></li>
+<li><a href="https://fox-that.techidaily.com/engage-with-the-tiktok-community/"><u>Engage With the TikTok Community:</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-13-pro-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 13 Pro Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-your-ultimate-guide-to-best-free-game-recording-apps/"><u>In 2024, Your Ultimate Guide to Best Free Game Recording Apps</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/marking-the-milestone-digiartys-18-year-journey-and-exclusive-birthday-offer/"><u>Marking the Milestone: Digiarty's 18-Year Journey and Exclusive Birthday Offer</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/maximize-mac-capacity-in-minutes-essential-techniques-for-swiftly-clearing-disk-space/"><u>Maximize Mac Capacity in Minutes: Essential Techniques for Swiftly Clearing Disk Space</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/navigating-the-future-essential-legal-frameworks-for-advancing-ai-technologies-insights-from-abbyy/"><u>Navigating the Future: Essential Legal Frameworks for Advancing AI Technologies - Insights From ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/revamping-speech-recognition-with-text-to-voice-training-techniques-tips-from-the-abbyy-experts/"><u>Revamping Speech Recognition with Text-to-Voice Training Techniques - Tips From the ABBYY Experts</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/safe-mac-and-windows-videomusic-download-with-macx-for-youtube-secure-your-media-content/"><u>Safe Mac and Windows Video/Music Download with MacX for YouTube – Secure Your Media Content!</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

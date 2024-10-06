@@ -1,7 +1,7 @@
 ---
 title: Simplify Scanning on iPhone/iPad - Add New ABBYY Siri Shortcuts for TextGrabber and FineScanner Applications
-date: 2024-08-25T23:04:29.392Z
-updated: 2024-08-26T23:04:29.392Z
+date: 2024-10-02T21:49:41.457Z
+updated: 2024-10-06T00:53:32.390Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3df9ba6a1aa455dbcac03eedf.jpg
@@ -66,8 +66,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -75,7 +73,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[New] 2024 Approved A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>[Updated] 2024 Approved Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-re-establishing-obs-audio-recording-capabilities-for-2024/"><u>[Updated] Re-Establishing OBS Audio Recording Capabilities for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wifidvdipad/"><u>「最新のWiFi/有線DVDプレーヤー・ドライブでIPadに接続：上手な設定ガイドと選び方」</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-seo-success-using-advanced-cookiebot-features/"><u>Boost SEO Success Using Advanced Cookiebot Features</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/die-effektivsten-techniken-abspielen-von-dvds-auf-einem-macbook-proair-oder-imac-erklart/"><u>Die Effektivsten Techniken: Abspielen Von DVDs Auf Einem Macbook Pro/Air Oder iMac Erklärt</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-oppo-a79-5g-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Oppo A79 5G?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-to-4k-video-downloader-securely-transferring-uhd-footage-from-any-device/"><u>Ultimate Guide to 4K Video Downloader: Securely Transferring UHD Footage From Any Device</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/understanding-icloud-a-comprehensive-guide-on-its-functions-and-usage/"><u>Understanding iCloud: A Comprehensive Guide on Its Functions and Usage</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture®によりインボイス処理時間が90%%短縮!企業デジタル変革のコア技術
-date: 2024-08-25T23:04:43.616Z
-updated: 2024-08-26T23:04:43.617Z
+date: 2024-10-04T16:47:23.005Z
+updated: 2024-10-05T19:50:43.343Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3435ed54de8a47266623e22c7fb2a2e96dbea38f3e30be83e17069ff0556f42f.png
@@ -24,6 +24,19 @@ Transportation & Logistics | Accounts Payable Automation
 輸送およびロジスティクス | 支払業務自動化 
 
 ![Sumitomo Warehpuse Ltd chooses ABBYY](https://static1.abbyy.com/abbyycommedia/29245/08a-jp-sumitomo-main-556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### お客様の概要
 
@@ -119,9 +132,23 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 
 ![写真左より、NECソリューションイノベータ株式会社 熊坂様、株式会社住友倉庫大津様、木村様、上原様、日本電気株式会社 牛尾様](https://static2.abbyy.com/abbyycommedia/29248/08d-jp-sumitomo-content-750x375.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 写真左より、NECソリューションイノベータ株式会社 熊坂様、株式会社住友倉庫 大津様、木村様、上原様、日本電気株式会社 牛尾様
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
@@ -142,8 +169,12 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。
@@ -156,8 +187,6 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -165,4 +194,23 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-grasping-the-glossary-of-virtual-worlds/"><u>[New] Grasping the Glossary of Virtual Worlds</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-seamless-access-watching-fb-videos-on-apple-tv-explained/"><u>[New] In 2024, Seamless Access Watching FB Videos on Apple TV Explained</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-screencapture-simplified-the-comprehensive-camstudio-review-for-2024/"><u>[New] ScreenCapture Simplified The Comprehensive CamStudio Review for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-google-meet-live-streaming-for-beginners-stepwise-guide-to-youtube/"><u>[Updated] In 2024, Google Meet Live-Streaming for Beginners Stepwise Guide to YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-silence-disabling-participants-in-gmeet-calls-for-2024/"><u>[Updated] Mastering Silence Disabling Participants in GMeet Calls for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/2024-dvd-13macwindows/"><u>【2024】無料で利用可能! DVD コピーソフトのベストな13品をMac/Windowsユーザーへ</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/2024dvd-windows-1110/"><u>2024免費DVD播放器最新推薦軟件 [爱好者选择：適用Windows 11/10]</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/exclusive-promo-save-15-on-winx-dvd-ripper-platinum-use-code-during-launch-week/"><u>Exclusive Promo: Save $15 on WinX DVD Ripper Platinum - Use Code During Launch Week</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-6s-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 6s</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unmanned-vehicles-classified/"><u>In 2024, Unmanned Vehicles - Classified</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/revolutionize-your-gaming-by-recording-on-win10/"><u>Revolutionize Your Gaming by Recording on Win10</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/seamless-iso-to-dvd-conversion-for-pcs-and-macs-a-step-by-step-guide-with-6-effective-techniques/"><u>Seamless ISO to DVD Conversion for PCs & Macs: A Step-by-Step Guide with 6 Effective Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-xiaomi-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Xiaomi Phone Hassle-Free</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/the-ultimate-guide-combining-mkv-videos-captions-and-soundtracks/"><u>The Ultimate Guide: Combining MKV Videos, Captions, and Soundtracks</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/votre-guide-definitif-les-meilleurs-lecteurs-video-4k-uhd-pcmac-installer-and-partager-des-critiques/"><u>Votre Guide Definitif : Les Meilleurs Lecteurs Vidéo 4K UHD PC/Mac - Installer & Partager Des Critiques</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/winx-mediatrans-pro-ultimate-pc-to-ios-device-transfer-solution-for-images-music-and-videos/"><u>WinX MediaTrans Pro - Ultimate PC to iOS Device Transfer Solution for Images, Music, and Videos</u></a></li>
+</ul></div>
 

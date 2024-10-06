@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Key Ingredient in Enhancing Online Analytics and Conversions"
-date: 2024-09-05T11:11:22.239Z
-updated: 2024-09-06T11:11:22.239Z
+date: 2024-10-04T16:31:07.141Z
+updated: 2024-10-06T04:44:29.059Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b81e2111a8c2aa2cbab431fe7.jpg
@@ -13,36 +13,19 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 
 Education & Science | PDF and Document Conversion
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## University of Southampton Improves Access to its Collection by Digitising Vast Quantities of Printed Material
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## University of Southampton Improves Access to its Collection by Digitising Vast Quantities of Printed Material
 
 [View or download a printable version of this article (PDF 430 kb)](https://static5.abbyy.com/abbyycommedia/16443/case-study-southampton-education-en.pdf) 
@@ -52,11 +35,12 @@ The University of Southampton Library supports a community of approximately 35,0
 ABBYY FineReader, a software product designed for ad-hoc scanning and digitisation, had been used by the Library for a number of years to digitise small numbers of pages, and occasionally full books, with the addition of text recognition or OCR (optical character recognition). The Library quickly realised however that in order to automate the OCR process with a high throughput and achieve their goal of digitising half a million pages per year, they would need a more robust product capable of automatically processing large volumes of documents. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Solution
 
 In order to find a solution to process printed documents into searchable formats, such as PDF and PDF/A for digitising archives or records creation, the Library evaluated various options on the market. They examined the following criteria across a number of products: Speed and quality of OCR, range of output formats and compressions, and API/workflow integration possibility. After looking at a number of products the Library selected ABBYY Recognition Server as a best-fit solution.
@@ -71,6 +55,13 @@ Digitisation of 18th century Parliamentary Papers: Coverage includes the Journal
 
 Digitisation of 19th century pamphlets: Over 23,000 19th century pamphlets from UK research libraries that cover the socio-political and economic landscape in Britain were digitised by the LDU and converted into searchable PDFs. Project details and catalogue entry is available at: [www.britishpamphlets.org.uk](http://www.britishpamphlets.org.uk/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Other in-house projects include:
 
 Digitisation of Doctoral Theses: Scanned copies of 20,000 University of Southampton awarded theses were converted to searchable PDFs and are now being made available through the university’s institutional research repository, Eprints Soton. Eprints Soton contains electronic copies of research output, including journal articles, book chapters, conference papers and theses. It also includes unpublished manuscripts and papers. The full text of many of these items is freely available to be used in accordance with copyright and end-user permissions. [eprints.soton.ac.uk](http://eprints.soton.ac.uk/)
@@ -82,11 +73,12 @@ Digitisation of Course Texts: The Library converts printed items into searchable
 The Richard Rutt Collection: A collection of 19th century knitting books from the Winchester School of Art Reference Library have been digitised and made available as searchable PDFs via the web. [www.southampton.ac.uk/library/](http://www.southampton.ac.uk/library/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 A powerful and accurate OCR is an integral component of the Library Digitisation Unit’s activities. Thanks to the increased throughput offered by ABBYY Recognition Server, Library staff are freed from the tedious work of manual OCR and millions of pages of documents from the University of Southampton’s collection are available online in digital formats to its students and to the wider world.
@@ -101,12 +93,6 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu).
 
 Share 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -119,8 +105,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,4 +112,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-5-accessories-for-beneath-water-shooting/"><u>[New] 2024 Approved Top 5 Accessories for Beneath Water Shooting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-beyond-tiktok-horizons-the-essence-of-triller/"><u>[New] Beyond TikTok Horizons The Essence of Triller</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-roadmap-for-spotify-ad-mastery/"><u>2024 Approved The Ultimate Roadmap for Spotify Ad Mastery</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726224360389-mp4webm/"><u>無限MP4到WEBM翻譯：移動瓦韋轉換工具在線上免費服務</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/conversao-gratuita-de-avi-para-mov-quicktime-on-line/"><u>Conversão Gratuita De Avi Para Mov (QuickTime) On-Line</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/converter-gratuitamente-imagens-tga-em-jpeg-na-web-utilizando-o-software-movavi-guia-passo-a-passo/"><u>Converter Gratuitamente Imagens TGA Em JPEG Na Web Utilizando O Software Movavi – Guia Passo-a-Passo</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-your-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>How to identify missing your drivers with Windows Device Manager in Windows 11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-xiaomi-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Xiaomi Without PUK Codes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-on-your-iphone-15-pro-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password On your iPhone 15 Pro</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/in-depth-insights-into-the-m3-macbook-pro-anticipated-debut-pricing-insight-and-complete-specs-overview/"><u>In-Depth Insights Into the M3 MacBook Pro - Anticipated Debut, Pricing Insight & Complete Specs Overview</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/les-meilleurs-logiciels-open-source-gratuites-pour-modifier-des-pdf-sous-windows-les-options-a-connaitre-en-2023/"><u>Les Meilleurs Logiciels Open-Source Gratuites Pour Modifier Des PDF Sous Windows: Les Options À Connaître en 2023 !</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-where-to-download-and-listen-dj-music/"><u>New 2024 Approved Where to Download and Listen DJ Music?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/passos-faceis-de-reducao-tamanho-do-video-mp4-usando-a-ferramenta-movavi/"><u>Passos Fáceis De Redução Tamanho Do Vídeo MP4 Usando a Ferramenta Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/riscrivi-file-m1v-a-formato-mpg-via-web-gratuito-convertitore-di-video-online/"><u>Riscrivi File M1V a Formato MPG Via Web Gratuito - Convertitore Di Video Online</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-12-pro-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/the-ultimate-face-off-determining-the-top-contender-between-steam-and-epic-games-for-gamers/"><u>The Ultimate Face-Off: Determining the Top Contender Between Steam and Epic Games for Gamers.</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-7-methods-for-mirroring-your-iphone-onto-a-pc-a-comprehensive-guide-by-movavi/"><u>Top 7 Methods for Mirroring Your iPhone Onto a PC: A Comprehensive Guide by Movavi</u></a></li>
+</ul></div>
 

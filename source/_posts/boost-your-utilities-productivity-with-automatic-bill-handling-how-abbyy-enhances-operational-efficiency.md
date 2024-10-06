@@ -1,18 +1,12 @@
 ---
 title: "Boost Your Utilities' Productivity with Automatic Bill Handling: How ABBYY Enhances Operational Efficiency"
-date: 2024-09-05T11:11:22.995Z
-updated: 2024-09-06T11:11:22.995Z
+date: 2024-10-02T02:54:14.952Z
+updated: 2024-10-05T19:25:27.531Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Boost Your Utilities' Productivity with Automatic Bill Handling: How ABBYY Enhances Operational Efficiency
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
@@ -25,34 +19,16 @@ Oil & Gas | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated Invoice Processing from ABBYY Fuels Higher Efficiency for Utility Management Firm
 
 BPO and Shared Services | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/15553/4-total-utility-management-services-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Customer Overview
 
 ![Total Utility Management Services, LLC](https://static4.abbyy.com/abbyycommedia/15297/total-utility-management-services-logo.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name         | Total Utility Management Services, LLC    |
 | ------------ | ----------------------------------------- |
 | Headquarters | Houston, Texas, USA                       |
@@ -92,14 +68,28 @@ Total Utility Management Services, LLC, processes and manages over 5,000 utility
 invoices for monthly processing
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### a **80**% gain
 
 in processing time per invoice 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### a **90**% gain
 
@@ -153,21 +143,16 @@ Plus, FlexiCapture is strengthening the company’s competitive edge. In additio
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![(4) Total Utility Management Services-2](https://static3.abbyy.com/abbyycommedia/15554/4-total-utility-management-services-2.png)](https://static5.abbyy.com/abbyycommedia/11373/case-study-total-utility-management-services-oil-gas-en.pdf "PDF version") [PDF version](https://static5.abbyy.com/abbyycommedia/11373/case-study-total-utility-management-services-oil-gas-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static5.abbyy.com/abbyycommedia/11373/case-study-total-utility-management-services-oil-gas-en.pdf "PDF version") 
 
@@ -180,11 +165,12 @@ Share  True ?  : ""
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -197,8 +183,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,4 +190,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-basics-of-designing-your-own-facebook-reel-experience/"><u>[New] In 2024, The Basics of Designing Your Own Facebook Reel Experience</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-top-5-websites-for-an-active-social-presence/"><u>[New] In 2024, Top 5 Websites for an Active Social Presence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easing-the-heat-cutting-down-vanguard-writes-on-your-computer/"><u>Easing the Heat: Cutting Down Vanguard’ Writes on Your Computer</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/elevate-your-super-bowl-watch-party-with-these-home-theater-configuration-recommendations/"><u>Elevate Your Super Bowl Watch Party with These Home Theater Configuration Recommendations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-instream-ads-how-to-setup-and-evaluate-facebook-instream-ad/"><u>In 2024, Facebook Instream Ads | How to Setup and Evaluate Facebook Instream Ad</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/introducing-affordability-to-premium-pet-surveillance/"><u>Introducing Affordability to Premium Pet Surveillance</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/leveraging-cookiebot-technology-for-targeted-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Targeted Engagement and Growth</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/maximierung-der-nutzenfaktoren-von-sharepoint-bei-der-national-park-authority-mit-abbyy/"><u>Maximierung Der Nutzenfaktoren Von SharePoint Bei Der National Park Authority Mit ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pressing-issues-exploring-how-analytics-automation-and-process-intelligence-complement-each-other-in-our-upcoming-webinar/"><u>Pressing Issues: Exploring How Analytics Automation & Process Intelligence Complement Each Other in Our Upcoming Webinar</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/rochling-enhances-sap-accounting-with-standardized-invoice-handling-powered-by-abbyy-company-update/"><u>Röchling Enhances SAP Accounting with Standardized Invoice Handling, Powered by ABBYY - Company Update</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oppo-find-x7-ultra-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Oppo Find X7 Ultra FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/thriving-in-tech-abbyys-remarkable-60-revenue-surge-earns-spotlight-on-idc-marketscape-report/"><u>Thriving in Tech: ABBYY's Remarkable 60% Revenue Surge Earns Spotlight on IDC MarketScape Report</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transforming-digital-strategies-how-paragon-chose-abbyy-digital-intelligence-to-pioneer-change/"><u>Transforming Digital Strategies: How Paragon Chose ABBYY Digital Intelligence to Pioneer Change</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-essentials-correcting-corrupted-core-files-in-windows-10-11/"><u>Troubleshooting Essentials: Correcting Corrupted Core Files in Windows 10, 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-compatible-software-and-hardware-for-avi-file-playback-across-devices/"><u>Ultimate Guide: Compatible Software & Hardware for AVI File Playback Across Devices</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unleashing-site-potential-with-the-power-of-cookiebot-technology/"><u>Unleashing Site Potential with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unlocking-the-secrets-of-music-statistics-with-bcr-tutorials-dive-into-abbyys-inspirational-articles/"><u>Unlocking the Secrets of Music Statistics with BCR Tutorials: Dive Into ABBYY's Inspirational Articles</u></a></li>
+</ul></div>
 

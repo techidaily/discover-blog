@@ -1,40 +1,22 @@
 ---
 title: Enhanced Performance Through Advanced Analytics Technology
-date: 2024-09-05T11:11:22.520Z
-updated: 2024-09-06T11:11:22.520Z
+date: 2024-09-30T21:04:54.421Z
+updated: 2024-10-06T01:29:39.466Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6a865e452463a91a0991eeba9d7367cf47a6e9f955045ec39458749fd03f02a9.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced Performance Through Advanced Analytics Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Le logiciel 3M 360 Encompass s’équipe de la reconnaissance de texte d’ABBYY
 
 23 mai 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Un kit de développement logiciel OCR va élargir le module de codage de 3M basé sur les données à l’hôpital_
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY, fournisseur leader de technologies et de solutions de reconnaissance de documents, de capture de données et linguistiques, annonce que le module de codage basé sur les données du logiciel 3M 360 Encompass intègrera prochainement la reconnaissance de texte des documents numérisés en tant qu’option d’extension. Pour ce faire, la division Health Information Systems de 3M utilisera la technologie OCR intégrée d’ABBYY, un acteur majeur au niveau mondial pour les technologies et les solutions de reconnaissance et de conversion de documents.
@@ -96,8 +78,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -105,4 +85,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-art-of-video-transmission-from-fb-to-whatsapp/"><u>[Updated] 2024 Approved The Art of Video Transmission From FB to WhatsApp</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-apple-iphone-12-pro-max-to-chromecast-drfone-by-drfone-ios/"><u>How to Cast Apple iPhone 12 Pro Max to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-x9a-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor X9a?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-learn-iphone-collage-techniques-like-a-pro/"><u>In 2024, Learn iPhone Collage Techniques Like a Pro</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-woes-uncover-the-causes-and-remedies-for-vanishing-phone-contacts/"><u>IPhone Woes? Uncover the Causes and Remedies for Vanishing Phone Contacts</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/kunt-u-je-ts-videovorm-naar-gratis-mp3-online-omzetten-met-movavi/"><u>Kunt U Je .TS-videovorm Naar Gratis MP3 Online Omzetten Met Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/software-libre-para-reemplazar-el-editor-de-peliculas-de-windows-opciones-sin-coste/"><u>Software Libre Para Reemplazar El Editor De Películas De Windows: Opciones Sin Coste</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/stardew-valley-stutter-fix-ensuring-smooth-playtime-on-your-desktop/"><u>Stardew Valley Stutter Fix: Ensuring Smooth Playtime on Your Desktop</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-effects-of-automated-moderation-on-artificial-intelligence-chatbot-interactions/"><u>The Effects of Automated Moderation on Artificial Intelligence Chatbot Interactions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-11-win11-screenshot-tools-for-effortless-capture-expert-picks-2024/"><u>Top 11 Win11 Screenshot Tools for Effortless Capture - Expert Picks 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-8-svenskaste-streamingplattor-for-att-se-din-favorittv-serie-nyt/"><u>Top 8 Svenskaste Streamingplattor För Att Se Din Favorittv-Serie Nyt</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transformez-un-fichier-audio-au-format-ogg-en-wav-gratuitement-en-ligne-ezyram/"><u>Transformez Un Fichier Audio Au Format OGG en WAV Gratuitement en Ligne - Ezyram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unlock-clearer-livestreams-with-these-4-tips/"><u>Unlock Clearer Livestreams with These 4 Tips</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mpeg-movavi/"><u>오피스에서 제공: MPEG 편집 무료 및 전환 - Movavi</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

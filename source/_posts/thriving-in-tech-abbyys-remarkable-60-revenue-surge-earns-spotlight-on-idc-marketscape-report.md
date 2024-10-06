@@ -1,7 +1,7 @@
 ---
 title: "Thriving in Tech: ABBYY's Remarkable 60%% Revenue Surge Earns Spotlight on IDC MarketScape Report"
-date: 2024-08-25T23:05:25.929Z
-updated: 2024-08-26T23:05:25.929Z
+date: 2024-10-04T04:02:09.930Z
+updated: 2024-10-05T18:04:08.505Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/14595ce84d31d38abb3ed2fa0891687712e003ea9a69810e6bfa5725263bbf33.jpg
@@ -52,6 +52,14 @@ Die globale Präsenz von ABBYY wird durch das wachsende Partnerprogramm weiter v
 Um mehr über die intelligenten Automatisierungslösungen von ABBYY zu erfahren, besuchen Sie [www.abbyy.com](https://tools.techidaily.com/abbyy/products/). 
 
   
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Sitz in Milpitas, Kalifornien (USA) und Niederlassungen in 14 Ländern und [offizieller Intelligent Automation Partner des Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). Weitere Informationen finden Sie unter <https://www.abbyy.com/de> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -59,15 +67,23 @@ ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Gina Ray
 
 _ABBYY_
@@ -82,8 +98,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +105,20 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-comprehensively-understanding-and-mastering-win10s-zoom-use/"><u>[New] 2024 Approved Comprehensively Understanding and Mastering Win10's Zoom Use</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-photobook-to-film-the-guide-for-digitizing-classic-photographs/"><u>[New] Photobook to Film The Guide for Digitizing Classic Photographs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-analyzing-online-video-discussions-for-2024/"><u>[Updated] Analyzing Online Video Discussions for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unraveling-the-purpose-behind-facebooks-blue-icon/"><u>[Updated] In 2024, Unraveling the Purpose Behind Facebook's Blue Icon</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-technique-for-merging-gopro-videography-with-encompassing-immersive-content/"><u>[Updated] Top Technique for Merging GoPro Videography with Encompassing Immersive Content</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726027264003-windows-and-mac/"><u>「Windows & Mac対応の無料動画エンコーダー - 最高の選択肢について学ぶ！」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-no-cost-avc-effortlessly-download-audio-from-your-videos/"><u>1) No-Cost AVC: Effortlessly Download Audio From Your Videos</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wmawav/"><u>無料ソフトでWMAをWAVに変換する - ベストの選び方！</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726026727722-windows-11/"><u>限定的なオーディオ設定でWindows 11スクリーンを効果的に録画するテクニック</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-10plus-online-photo-background-changers-to-remove-background-easily-for-2024/"><u>Top 10+ Online Photo Background Changers to Remove Background Easily for 2024</u></a></li>
+<li><a href="https://techidaily.com/ways-to-fix-the-failed-to-parse-the-corrupted-excel-2013-file-error-by-stellar-guide/"><u>Ways to Fix the Failed to Parse the Corrupted Excel 2013 File Error</u></a></li>
+</ul></div>
 

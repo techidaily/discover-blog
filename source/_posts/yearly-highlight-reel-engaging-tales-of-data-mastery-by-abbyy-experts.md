@@ -1,7 +1,7 @@
 ---
 title: "Yearly Highlight Reel: Engaging Tales of Data Mastery by ABBYY Experts"
-date: 2024-08-25T23:05:29.731Z
-updated: 2024-08-26T23:05:29.731Z
+date: 2024-10-04T17:14:18.835Z
+updated: 2024-10-05T19:58:17.086Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01714150012339f1efdced7e1f734d013877746c193a3029a59cdde359ecf8d8.jpg
@@ -25,23 +25,23 @@ In the list below, we’ve curated our top picks for Process Intelligence articl
 
 ![Scott Opitz ABBYY CMO](https://static1.abbyy.com/abbyycommedia/32066/1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After a 20-year tenure with the company, our Chief Marketing Officer, Jupp Stoepetie, retired in February of last year, and we announced the appointment of Scott Opitz as his successor. Workflow Magazine interviewed Opitz about his new role and talked about his biggest challenges, industry outlook, and more.
 
 [Read the article.](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 2\. Successful Digital Transformation Starts with a True Understanding of Processes
 
 Digital Intelligence empowers enterprises to make a tremendous impact where it matters most: customer experience, competitive advantage, visibility, and compliance. Ryan Raiker, Director of Digital Marketing and process expert, discusses how businesses need to have an in-depth understanding of their organization’s processes in his article with RTInsights.com.
 
 [Read the article.](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### 3\. Understand Your Business Processes or Risk Failing
 
 Automation has fundamentally transformed the enterprise. From streamlining workflows and increasing operational efficiencies to improving the customer experience, automation enhances business-critical functions and accelerates digital transformation initiatives.
@@ -52,9 +52,6 @@ Robotic process automation (RPA) technologies enable employees to focus less on 
 
 [Read the article.](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### 4\. A New Approach to Processes: Transforming Your Business and Navigating Change with Process Intelligence
 
 From evolving customer demands, complex legal and regulatory environments, increasing amounts of data, and an unexpected global health crisis, organizations of all sizes and across all industries and geographical markets are being challenged in ways they have never seen before. In his article with Workflow Magazine, ABBYY CMO Scott Opitz talks about how organizations need to be agile and timely in effectively responding, adapting, and overcoming to best serve their customers, especially during times of change.
@@ -62,8 +59,12 @@ From evolving customer demands, complex legal and regulatory environments, incre
 [Read the article.](https://workflowotg.com/a-new-approach-to-processes/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5\. 3 Questions Every Leader Needs to Ask for a Resilient Supply Chain
 
 While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted virtually every industry, it is perhaps the most pronounced in the supply chain. Three out of four U.S. companies report that their supply chains have been disrupted as a result of the crisis. Shipment delays and stock shortages have become common occurrences.
@@ -74,15 +75,19 @@ In late March, just a couple of weeks after a state of emergency was declared in
 
 [Read the article.](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Revitalize Profit Margins By Fixing Broken Processes
 
 In today’s climate, healthcare providers must protect their profit margins and obtain every dollar that is owed to them by insurance companies. Enhancing operational efficiencies and streamlining administrative processes can go a long way in reducing denials and minimizing the amount of re-work involved in billing workflows. Bruce Orcutt talks about the need for advanced solutions that can enable healthcare leaders to identify where their bottlenecks are and which processes are costing them money.
 
 [Read the article.](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 7\. Task & Process Mining Clear Pathway for Dynamite RPA
 
 Adrian Bridgwater, technology journalist, and his latest IDG Connect article explains that only by understanding the way digital business works at the most granular level and being able to categorize different workflows into defined discrete elements, can we manage people effectively and allow RPA bots to sit alongside their human counterparts with maximum efficiency. The article includes ABBYY as one firm operating in the “end-to-end” space.
@@ -91,12 +96,16 @@ Adrian Bridgwater, technology journalist, and his latest IDG Connect article exp
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **_ABBYY Timeline, a cloud-based platform, uses advanced task and process mining to deliver 360-degree visibility into business operations by combining insights from people, processes, and content. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -152,8 +161,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -161,4 +168,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-28-exemplary-metaverse-experiences-for-in-depth-understanding/"><u>[New] 2024 Approved 28 Exemplary Metaverse Experiences for In-Depth Understanding</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-prosight-review-the-next-big-step-beyond-manycam-for-2024/"><u>[New] ProSight Review The Next Big Step Beyond ManyCam for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-5-key-aspects-to-consider-when-sizing-your-youtube-thumbnail/"><u>[Updated] 2024 Approved 5 Key Aspects to Consider When Sizing Your YouTube Thumbnail</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-timing-and-frequency-their-effect-on-youtube-rankings/"><u>[Updated] In 2024, Timing & Frequency Their Effect on YouTube Rankings</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/iuoajoocueocrplusoctplusodpplusodkplusodhplusocquwitus9noobruocsplusodhdrpq5jlk4hos6rjgavku5xkuirjgzljgovjgzjgohjga7jg5xjg6zjg7zjg5jg7pjgrdjgajjgqvjg4pjg4jp51/"><u>「スクショビデオ制作のコツ:高品質に仕上げるためのフレーミングとカット選び」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pcmwavmp3/"><u>効率的PCM音声ファイルからWAVやMP3への高画質・速度向上変換ガイド</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp4avi-google5/"><u>最適なMP4とAVI形式に簡単変換! - Googleで上位5つのオンラインコンバーター | ソフトウェアダウンロード不要</u></a></li>
+<li><a href="https://techtrends.techidaily.com/from-phone-to-pc-seamless-integration-of-android-apps-into-your-windows-10-experience/"><u>From Phone to PC: Seamless Integration of Android Apps Into Your Windows 10 Experience</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/gif-powerdirector/"><u>GIF作りのコツ: PowerDirectorを使って簡単につくれます！</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/guide-to-downloading-the-shape-of-water-movie-and-soundtrack-from-dvd/"><u>Guide to Downloading the 'Shape of Water' Movie & Soundtrack From DVD</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/how-to-access-and-enjoy-wlmp-audio-files-on-your-windows-10-machine-a-step-by-step-tutorial/"><u>How to Access and Enjoy WLMP Audio Files on Your Windows 10 Machine - A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-honor-x50-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Honor X50 FRP?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-itel-p55-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Itel P55 5G?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/installing-the-fusion-addon-for-enhanced-viewing-on-kodi-19-and-18/"><u>Installing the Fusion Addon for Enhanced Viewing on Kodi 19 & 18</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mastering-sky-high-cinema-choosing-and-utilizing-leading-drone-videography-editors-for-stunning-results/"><u>Mastering Sky High Cinema: Choosing & Utilizing Leading Drone Videography Editors for Stunning Results</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3-202nitunes/"><u>MP3への変換ガイド: 「202N」ITunesで曲をダウンロードしてください</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-vivo-y28-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Vivo Y28 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-perfect-way-to-watch-all-conjuring-movies-in-their-correct-order/"><u>The Perfect Way to Watch All 'Conjuring' Movies in Their Correct Order</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/turn-off-youtube-preview-in-one-easy-step-guide-for-2024/"><u>Turn Off YouTube Preview in One Easy Step Guide for 2024</u></a></li>
+</ul></div>
 

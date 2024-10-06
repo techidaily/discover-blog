@@ -1,46 +1,22 @@
 ---
 title: Enrichit by ABBYY - Unveiling a Robust Open Library with Advanced NeoML Features for Data Management
-date: 2024-09-05T11:11:21.602Z
-updated: 2024-09-06T11:11:21.602Z
+date: 2024-09-30T16:33:53.779Z
+updated: 2024-10-05T19:03:03.119Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b6976e6cb0861a8e856af8d9b91eb1dc370f068cc6322414a1134e31c0876a0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enrichit by ABBYY - Unveiling a Robust Open Library with Advanced NeoML Features for Data Management
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY enrichit sa bibliothèque Open Source NeoML
 
 22 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * _NeoML offre des performances accrues de 50 % par rapport aux bibliothèques Open Source de Machine Learning existantes.1_
 * _Le langage de programmation Python, plus simple à appréhender, est désormais compatible avec NeoML, en plus de C++, Java et Objective-C qui étaient déjà pris en charge._
 
@@ -80,8 +56,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,4 +63,30 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-money-making-moves-now-with-over-500-subscribers/"><u>[New] In 2024, Money-Making Moves Now With Over 500 Subscribers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-echoing-social-engagement-transferring-tiktok-videos-on-facebook/"><u>[Updated] Echoing Social Engagement Transferring TikTok Videos on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-navigating-showmores-features-for-best-screen-recording-for-2024/"><u>[Updated] Navigating ShowMore's Features for Best Screen Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-premier-choices-8-linux-editing-tools/"><u>[Updated] Premier Choices 8 Linux Editing Tools</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1725290579584-dvd/"><u>合法で安全! DVDコピーの手引き - 完全に無料ガイド</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ai-winxvideo-ai/"><u>最先端AIテクノロジーでのフレーム補完 - Winxvideo AI 無料版</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-honor-90-gt-by-drfone-android/"><u>How to Bypass FRP from Honor 90 GT?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/how-to-fix-mp4-compatibility-problems-on-your-samsung-smart-tv-screen/"><u>How To Fix MP4 Compatibility Problems on Your Samsung Smart TV Screen</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-cyclic-redundancy-check-errors-in-your-files/"><u>How To Resolve Cyclic Redundancy Check Errors in Your Files</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-depth-gadget-analysis-by-tom-top-picks-and-insights/"><u>In-Depth Gadget Analysis by Tom - Top Picks and Insights</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/lunch-whole-grain-pasta-salad-with-cherry-tomatoes-artichoke-hearts-kalamata-olives-feta-cheese-served-with-a-lemon-vinaigrette-dressing/"><u>Lunch: Whole Grain Pasta Salad with Cherry Tomatoes, Artichoke Hearts, Kalamata Olives, Feta Cheese. Served with a Lemon Vinaigrette Dressing.</u></a></li>
+<li><a href="https://win11.techidaily.com/rectifying-windows-11s-video-conferencing-snag-code-1132/"><u>Rectifying Windows 11'S Video Conferencing Snag: Code 1132</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/speedy-and-secure-dvd-extraction-rip-disc-to-premium-mp4-format-h265-using-winx-pro-edition-in-record-time/"><u>Speedy and Secure DVD Extraction: Rip Disc to Premium MP4 Format (H.265) Using WinX Pro Edition in Record Time</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshooting-and-solutions-for-clipconvertercc-security-error-issues/"><u>Troubleshooting & Solutions for ClipConverter.cc Security Error Issues</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-list-of-free-tools-for-instantly-saving-streaming-videos-from-the-internet/"><u>Ultimate List of Free Tools for Instantly Saving Streaming Videos From the Internet!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wie-man-den-nvenc-videoencoder-erfolgreich-in-handbrake-integriert-und-aktiviert/"><u>Wie Man Den NVENC Videoencoder Erfolgreich in HandBrake Integriert Und Aktiviert</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,28 +1,16 @@
 ---
 title: How Artificial Intelligence Revolutionizes Business Paperwork Analysis - A Guide From the ABBYY Expertise Corner
-date: 2024-09-05T11:11:22.620Z
-updated: 2024-09-06T11:11:22.620Z
+date: 2024-10-01T04:36:57.999Z
+updated: 2024-10-05T17:29:32.905Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3c841d342bad4a1013bf8d86.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Artificial Intelligence Revolutionizes Business Paperwork Analysis - A Guide From the ABBYY Expertise Corner
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Turning Business Documents into Actionable Insights with AI
 
 December 14, 2017
@@ -32,14 +20,22 @@ December 14, 2017
 The rapid advancement in cognitive technologies is significantly impacting the way businesses transform their unstructured documents into actionable insights to achieve better business outcomes. The days are long gone when companies rely solely on OCR technology for converting business-critical documents into actionable information. ABBYY's Chief Innovation Officer Anthony Macciola shares insights into next era of customer relationships and why companies must smarten up with artificial intelligence (AI).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Human in the Loop
 
 Macciola believes that the on-going onslaught of AI and its integration in business will not remove the need for enterprises to have knowledge workers: “With all AI solutions, people with more advanced training are needed who understand the company’s core values in addition to the technology processes.” This is because people have the characteristics that AI solutions need, such as empathy, creativity, judgement and critical thinking skills. Therefore, the skilled worker will always be vital to the success of the organization.”
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What do customers want?
 
@@ -50,17 +46,12 @@ For Macciola, these insights point to machine learning and RPA. “RPA is likely
 “Consequently, once organizations have automated various tasks by adding a level of learned intelligence, they’re going to want to monitor and understand the impact those efforts are having on their organization. This will result in businesses and their workforces going through a material change over the next three to five years.”
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Adjusting to Disruption
 
 Macciola believes organizations must adjust for AI to work successfully and this will demand a significant shift in skills. The priority will be having workers who are open to embracing new technology.
@@ -69,12 +60,6 @@ The general workplace will result in more tasks being addressed by a system of r
 
 “Another skills shift will be that the workers’ role will shrink from a span of control and expertise standpoint. As the software gets smarter, its dependency on the workforce shrinks and the knowledge workers will become more narrowly focused from a role and responsibility standpoint.”
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Looking ahead
 
 Macciola predicts industry will see significant change in three areas largely driven by the convergence of Robotic Process Automation and AI. RPA software is a powerful tool to perform manual, time-consuming, rules-based office tasks more efficiently by reducing cycle time and at lower costs than other automation solutions.
@@ -90,11 +75,12 @@ Macciola predicts industry will see significant change in three areas largely dr
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -149,8 +135,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -158,4 +142,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-mastering-timing-on-mobile-top-10-apps-for-couples-special-day/"><u>[New] Mastering Timing on Mobile Top 10 Apps for Couple's Special Day</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-a-comprehensive-guide-to-creating-compelling-fb-reels/"><u>[Updated] In 2024, A Comprehensive Guide to Creating Compelling FB Reels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-laptop-and-mobile-guide-for-initiating-google-meet/"><u>[Updated] Laptop & Mobile Guide for Initiating Google Meet</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726227901086-wtv-movavi/"><u>「免費オンラインWTVコンバーター - MOVAVI」</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mjpeg-movavi/"><u>線上直接 MJPEG 免費解決方案 - Movavi 之選</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/bez-souladu-zvuku-kompletni-nahravka-obrazovky-s-movari-efektivni-reseni/"><u>Bez Souladu Zvuku: Kompletní Nahrávka Obrazovky S MoVaRi - Efektivní Řešení</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-non-functional-dolby-atmos-soundbars-on-your-pc-with-windows-1110/"><u>Fixing Non-Functional Dolby Atmos Soundbars on Your PC with Windows 11/10</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/flat-video-zu-videobluray-umwandlung-kostenlos-online-bei-movavi-bewerkstelligen/"><u>Flat Video Zu Videobluray-Umwandlung Kostenlos Online Bei Movavi Bewerkstelligen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/hilarious-hits-for-iphones/"><u>Hilarious Hits for iPhones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/infusing-youtube-soundtracks-within-multimedia/"><u>Infusing YouTube Soundtracks Within Multimedia</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/kostenlos-konvertieren-von-webm-in-mp3-effizienter-online-service-bei-movavi/"><u>Kostenlos Konvertieren Von Webm in MP3: Effizienter Online-Service Bei Movavi</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/the-ultimate-guide-to-exceptional-data-retrieval-by-singh/"><u>The Ultimate Guide to Exceptional Data Retrieval, by Singh</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-truth-an-in-depth-viber-out-review-guide/"><u>Unveiling the Truth: An In-Depth Viber Out Review Guide</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ogv-mpeg/"><u>오늘날의 가장 우아한 영상 변환: OGV, MPEG 무료 온라인 자동화</u></a></li>
+</ul></div>
 

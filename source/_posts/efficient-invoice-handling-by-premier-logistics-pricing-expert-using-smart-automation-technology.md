@@ -1,7 +1,7 @@
 ---
 title: Efficient Invoice Handling by Premier Logistics Pricing Expert Using Smart Automation Technology
-date: 2024-09-05T11:11:22.434Z
-updated: 2024-09-06T11:11:22.434Z
+date: 2024-10-01T04:02:09.782Z
+updated: 2024-10-05T23:02:51.982Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d52ef143e5ac406fb5edcd5e28a24a2a1379f299efd751d4b382d0440e3e89ad.jpg
@@ -13,12 +13,6 @@ thumbnail: https://thmb.techidaily.com/d52ef143e5ac406fb5edcd5e28a24a2a1379f299e
 
 Transportation & Logistics | Accounts Payable Automation
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Leader in Transportation Cost Management Speeds Invoice Processing with Automated Data Capture
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
@@ -61,17 +55,12 @@ AFS, a world-leader in transportation cost management, processes 70,000,000 invo
 ###### SEE HOW ABBYY CAN HELP
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **2,600,000** 
 
 paper invoices a year
@@ -80,12 +69,6 @@ paper invoices a year
 
 of turnaround time
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### $**60,000** of
 
 annual savings
@@ -118,25 +101,27 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transportation & Logistics](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/38090/ds-260_afs-case-study_thumbnails-gray-360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
@@ -149,11 +134,12 @@ Share  True ?  : ""
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -166,8 +152,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -175,4 +159,26 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-answers.techidaily.com/guide-stop-halo-3-from-suddenly-closing-pc-gaming-fixes-at-hand/"><u>[Guide] Stop Halo 3 From Suddenly Closing – PC Gaming Fixes at Hand</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-how-to-shoot-slow-motion-video-on-iphone/"><u>[Updated] 2024 Approved How to Shoot Slow Motion Video on iPhone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-instructors-resource-for-enhancing-learning-via-video/"><u>[Updated] Instructor's Resource for Enhancing Learning via Video</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-beginners-blueprint-for-speedy-video-on-snapchat/"><u>2024 Approved Beginner’s Blueprint for Speedy Video on Snapchat</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/conversion-gratuita-online-da-rmvb-a-mkv-con-movie-converter/"><u>Conversion Gratuita Online: Da RMVB a MKV Con Movie Converter</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/convert-your-mov-videos-into-asf-for-no-cost-with-movavis-reliable-service/"><u>Convert Your MOV Videos Into ASF for No Cost with Movavi's Reliable Service</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/free-online-converter-change-mp4-video-files-into-quicktime-mov-format/"><u>Free Online Converter: Change MP4 Video Files Into QuickTime MOV Format</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-htc-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 HTC Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mac-video-editing-made-easy-download-splice-now/"><u>Mac Video Editing Made Easy Download Splice Now</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speech-to-script-top-apps-for-on-the-go-text-generation/"><u>Speech to Script Top Apps for On-the-Go Text Generation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-validating-your-yt-channels-earnings-for-2024/"><u>The Ultimate Guide to Validating Your YT Channel's Earnings for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-7-best-automated-video-editors-experience-the-trend-of-effortless-videa-edits/"><u>Top 7 Best Automated Video Editors: Experience the Trend of Effortless Videa Edits!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-9-fotoregistreringsapplikationer-for-nyaret-2024-den-sista-rekommendationen/"><u>Top 9 Fotoregistreringsapplikationer För Nyåret 2024 - Den Sista Rekommendationen</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transcodage-facile-et-gratuit-de-fichiers-vob-a-wav-sur-internet-tutorial-avec-movavi/"><u>Transcodage Facile Et Gratuit De Fichiers VOB À WAV Sur Internet - Tutorial Avec Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3-opus-to-mp3/"><u>이웃 사이트를 통해 제공되는 무료 MP3 변환 서비스: Opus to MP3</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726226929075-tiff-jpeg-movavi/"><u>자동 원두털 태그 없이 인터넷 연결을 사용한 TIFF에서 JPEG의 무료 변환 – Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726220809511-wmv-flac/"><u>자이오스 WMV FLAC 원룰 전환 - 무료 비주얼: 온라인에서 가장 효과적인 해결책</u></a></li>
+</ul></div>
 

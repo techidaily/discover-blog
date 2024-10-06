@@ -1,7 +1,7 @@
 ---
 title: "Harnessing the Power of AI: Insights From Industry Experts"
-date: 2024-08-25T23:05:15.569Z
-updated: 2024-08-26T23:05:15.569Z
+date: 2024-09-30T02:35:09.830Z
+updated: 2024-10-06T02:56:38.963Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb47cd4fd3c3317200fd6a0408edf3404c84e0ce2b2a16adf3218bdf1eaafd6a.jpg
@@ -28,8 +28,6 @@ it. You don’t have to wait for it to be modeled,” Washburn said. “That can
 Enable Your Data Strategy for Mission Success SIMPLIFY COMPLEX DATA & ACHIEVE DATA AGILITY LEARN HOW WE SUPPORT THE DOD & IC AT: MarkLogic.com/national-security Get a faster, trusted way to unlock value from complex data – and achieve data agility to meet mission requirements now and in the future. Our unified data platform combines a multi-model database and semantic AI technology to provide a comprehensive data layer with strong security, integration, and scale. PROVIDED BY MARKLOGIC 9 to have that understanding until you tell it. And I think the approach that you want to take to make that fast and consistent is to tell the machine the same way it’s applied to a machine learning model. And applying metadata is a quick way to do just that.” 
 
 Through an artiﬁcial intelligence set of principles, the Biden administration is urging agencies to move on from talking about AI and instead start using it and other automated tools more widely in day-to-day work. The “Blueprint for an AI Bill of Rights” outlines what agencies should do to ensure AI tools designed, developed and deployed — in and out of government — align with privacy rights and civil liberties. The administration, as part of these efforts, is also working on new federal procurement policy and guidance, to ensure agencies buy and implement AI and automation tools that are transparent and free of bias. Sorelle Friedler, assistant director for data and democracy at the White House Ofﬁce of Science and Technology Policy, said that the blueprint is “putting the weight of the White House” behind a policy area that’s provoked a lot of conversation but hasn’t led to widespread implementation across government. “We are not really breaking new ground but adding to the conversation and helping us move the conversation forward, from principles into practice,” Friedler said at a Brookings Institution event about the bill of rights. The Biden administration also released a technical companion to the blueprint that serves as a roadmap for implementing transparent and accountable AI tools in government. “We are also trying to live up to that across the federal government,” Friedler said. The nonbinding policy document puts a governmentwide focus on automated systems White House aims to accelerate government AI use through ‘bill of rights’ BY JORY HECKMAN We are not really breaking new ground but adding to the conversation and helping us move the conversation forward, from principles into practice. — Sorelle Friedler, Assistant Director for Data and Democracy, OSTP White House releases AI roadmap 10 FEDERAL NEWS NETWORK EXPERT EDITION: DELIVERING ON ARTIFICIAL INTELLIGENCE’S POTENTIAL 
-
-
 
 [\_Hlk122531495](https://tools.techidaily.com/abbyy/products/)
 
@@ -65,8 +63,6 @@ Through an artiﬁcial intelligence set of principles, the Biden administration 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -74,7 +70,29 @@ Through an artiﬁcial intelligence set of principles, the Biden administration 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-free-10-best-intro-maker-apps-for-iphone-and-android/"><u>[New] 2024 Approved FREE 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>[Updated] 2024 Approved Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/alteremailonprotonbrowser-a-step-by-step-guide/"><u>AlterEmailOnProtonBrowser: A Step-By-Step Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discreet-background-transformation-strategies/"><u>Discreet Background Transformation Strategies</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experience-the-old-school-games-anywhere-with-best-in-class-pc-gb-emulators/"><u>Experience the Old School Games Anywhere with Best-in-Class PC GB Emulators</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/inside-googles-cutting-edge-ai-venture-the-mission-and-milestones-of-project-gemini/"><u>Inside Google's Cutting-Edge AI Venture: The Mission and Milestones of Project Gemini</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-broadcasting-with-manycam-advanced-virtual-camera-and-screen-recording-solutions/"><u>Live Broadcasting with ManyCam: Advanced Virtual Camera and Screen Recording Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-stream-with-manycam-premium-video-capture-and-virtual-camera-solutions/"><u>Live Stream with ManyCam: Premium Video Capture and Virtual Camera Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-streaming-mastery-with-manycam-top-of-the-line-virtual-webcam-software/"><u>Live Streaming Mastery with ManyCam: Top-of-the-Line Virtual Webcam Software</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-streaming-pro-manycam-for-seamless-video-broadcasts-and-remote-camera-functionality/"><u>Live Streaming Pro: ManyCam for Seamless Video Broadcasts and Remote Camera Functionality</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-streaming-tools-discover-the-power-of-manycam-virtual-cam-and-hd-video-recording/"><u>Live Streaming Tools: Discover the Power of ManyCam - Virtual Cam & HD Video Recording</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-streaming-with-manycam-ultimate-virtual-camera-and-filming-tool/"><u>Live Streaming with ManyCam: Ultimate Virtual Camera & Filming Tool</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/master-your-online-presence-unleash-the-power-of-manycams-multi-camera-editing-and-livestream-tools/"><u>Master Your Online Presence: Unleash the Power of ManyCam's Multi-Camera Editing and Livestream Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/workforce-evolution-gpts-impact-on-employment/"><u>Workforce Evolution: GPT's Impact on Employment?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/zdnet-exclusive-unraveling-the-delayed-release-of-apples-augmented-and-virtual-reality-headset-due-to-software-setbacks-what-you-need-to-know/"><u>ZDNet Exclusive: Unraveling the Delayed Release of Apple's Augmented and Virtual Reality Headset Due to Software Setbacks - What You Need To Know</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

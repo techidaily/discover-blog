@@ -1,7 +1,7 @@
 ---
 title: Boost Your Website Traffic with Advanced Cookiebot Technology
-date: 2024-09-05T11:11:23.017Z
-updated: 2024-09-06T11:11:23.017Z
+date: 2024-10-01T16:57:53.990Z
+updated: 2024-10-05T19:09:43.590Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d52a784f1445afeffa363db79a58daa37aba70187bc1afa1f381803fc3dfa00.jpg
@@ -19,12 +19,6 @@ October 06, 2022
 
 ![](https://static4.abbyy.com/abbyycommedia/36114/15105-blog-cover-image.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 I recently completed the Boston Marathon and from my experience, training for and running a 26.2-mile race is SIMPLE. All that is required is a commitment to wake up before sunrise six mornings a week for 18 weeks and run between seven and 22 miles at varied levels of intensity. Is it easy? No, don’t confuse simple with easy—it’s hard.
 
 To be successful you need consistency day-in, day-out. Even on days when you feel like you failed or if conditions outside your control prevented your planned run. Of course, we’re all smiles when we begin—everyone is at the same pace, we’ve got the same goal in mind, working towards the same objective—why wouldn’t we be smiling? It’s all going to go exactly as planned. Until…
@@ -33,18 +27,6 @@ That notorious roadblock hits: Heartbreak Hill. We think we’ve prepared well a
 
 ![Heartbreak hill boston marathon shown via graph](https://static1.abbyy.com/abbyycommedia/36113/heartbreak-hill.png)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Heartbreak Hill highlighted in yellow_
 
 It’s the same scenario when undergoing a digital transformation project. **How do you plan for unexpected challenges?** There may be shifts in the market, a global pandemic, war, a huge leap in inflation, talent shortages, and rumblings of a recession. And more importantly, how do you remain resilient and committed to finish your intelligent automation journey when these impossible forces are working against you?
@@ -65,18 +47,6 @@ We cannot tolerate business processes that make our employees' jobs more challen
 
 ![prepare for automation like training for a marathon](https://static1.abbyy.com/abbyycommedia/36115/15105-blog-cover-image-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Maximize energy (aka budget)
 
 Our instinct is always to do more—train harder, go out faster, spend more. But, is more always better? Will spending more on KYC result in the outcomes you are searching for? Not necessarily.
@@ -86,14 +56,22 @@ For example, today, the amount of money laundering that occurs each year is equi
 Just as successful marathoners need to plan for the complexity of the entire course, not just the hills or the start or the finish, financial institutions must consider the complete end-to-end process, with the goal of achieving straight-through-processing. With this strategic mindset, the rewards will far exceed a medal or a personal record—improved customer experience, regulatory compliance, and better-quality KYC reviews are some of the trophies that can be obtained.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How Financial Services Firms Are Becoming More Resilient Than Ever
 
 [View the infographic](https://static1.abbyy.com/abbyycommedia/33035/infographic-financialservices-firms-resiliency-en.pdf "View the infographic") 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Keep a steady pace
 
@@ -102,6 +80,13 @@ Studies suggest that marathoners who start out too fast and give it their all ea
 Similarly, many organizations hastily rolled out new tools during the pandemic to automate and move their business processes to the cloud to accommodate remote workers and offer new digital services to customers that were contactless and self-service. Onboarding was among the priorities. Although bank leaders said they wanted to streamline onboarding and accelerate the process, we’re finding they were largely unable to remove enough friction to delight customers and stop them from dropping out.
 
 A common challenge during the onboarding process is identity affirmation and identity proofing—assuring the identity documents are valid, authentic, and that the applicant is who they say they are. This is a document-centric process that requires a seamless path for the mobile capture of documents, extraction of data into backend systems, and an elegant interface that delights customers. You don’t want to get to the finish line with a broken ankle—you want to get there in a healthy state, with the right information and correct, reliable data.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Have good training partners
 
@@ -115,18 +100,6 @@ Not only will your intelligent automation partner analyze your strengths and wea
 
 ![Cheryl Chiodi Boston Marathon](https://static1.abbyy.com/abbyycommedia/36112/cheryl-chiodi-marathon.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cheryl Chiodi completing the 2021 Boston Marathon.
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
@@ -134,11 +107,12 @@ Cheryl Chiodi completing the 2021 Boston Marathon.
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Cheryl Chiodi
 
 ### Like, share or repost
@@ -195,8 +169,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,4 +176,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-simplifying-remote-work-with-zoom-recording-techniques/"><u>[New] Simplifying Remote Work with Zoom Recording Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-smartphone-camera-accessories-vloggers-should-try-to-improve-recording/"><u>2024 Approved Smartphone Camera Accessories Vloggers Should Try to Improve Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-virtual-reality-wars-which-tech-rules-the-gamers-world/"><u>2024 Approved Virtual Reality Wars Which Tech Rules the Gamer’s World</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-plus-alteryx-seamless-combination-of-data-capture-and-analytics/"><u>ABBYY + Alteryx: Seamless Combination of Data Capture & Analytics</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-unveils-free-neoml-cutting-edge-toolkit-for-building-next-gen-ai-applications/"><u>ABBYY Unveils Free NeoML: Cutting-Edge Toolkit for Building Next-Gen AI Applications</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy-prozessintelligenz-erhalt-dynamische-fortschritte/"><u>ABBYY: Prozessintelligenz Erhält Dynamische Fortschritte</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyy20206/"><u>ABBYYブログによる2020年のベスト・デジタルインテリジェンス話題6選</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/achieve-exceptional-service-with-robust-anti-money-laundering-and-know-your-customer-practices/"><u>Achieve Exceptional Service with Robust Anti-Money Laundering & Know Your Customer Practices</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/announcing-paul-nizov-as-the-new-ciso-at-abbyy-leadership-transition-in-cybersecurity/"><u>Announcing Paul Nizov as the New CISO at ABBYY: Leadership Transition in Cybersecurity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-borders-with-shared-easter-sentiments/"><u>Crossing Borders with Shared Easter Sentiments</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-tips-to-address-the-absent-coredll-problem/"><u>Expert Tips to Address the Absent Core.DLL Problem</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-kid-friendly-drone-models-for-first-flights/"><u>In 2024, Top Kid-Friendly Drone Models for First Flights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagrams-essential-edits-the-definitive-list-of-apps-for-2024/"><u>Instagram's Essential Edits The Definitive List of Apps for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/self-paced-ai-mastery-for-digital-natives-uncover-the-ultimate-list-of-15-gratis-e-learning-opportunities-by-lifewire/"><u>Self-Paced AI Mastery for Digital Natives: Uncover the Ultimate List of 15 Gratis E-Learning Opportunities by Lifewire</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-selection-32-leading-free-backup-tools-evaluated-and-rated/"><u>Ultimate Selection: 32 Leading Free Backup Tools Evaluated and Rated</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/yearly-highlight-reel-engaging-tales-of-data-mastery-by-abbyy-experts/"><u>Yearly Highlight Reel: Engaging Tales of Data Mastery by ABBYY Experts</u></a></li>
+</ul></div>
 

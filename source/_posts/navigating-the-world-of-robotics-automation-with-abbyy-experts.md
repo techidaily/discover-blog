@@ -1,7 +1,7 @@
 ---
 title: Navigating the World of Robotics Automation with ABBYY Experts
-date: 2024-08-25T23:04:26.108Z
-updated: 2024-08-26T23:04:26.108Z
+date: 2024-10-01T04:25:12.722Z
+updated: 2024-10-06T03:00:14.009Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209e0df21f919437f2401fbd1a.jpg
@@ -20,6 +20,13 @@ April 19, 2018
 ![What is RPA? Understanding Robotic Process Automation | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25283/9134e_blog_understanding-robotic-process-automation_blog_934x400.png) 
 
 All the rave these days is around artificial intelligence (AI) as the technology continues to shake up the C-suite while gaining a seat at the table. For C-suite executives however, robotic process automation (RPA) is panning out as the most exciting tool in their digital transformation toolbox. With new compliance regulations looming large, organizations need RPA to help unlock the hidden value in both structured and unstructured documents. Highly regulated industries that control large volume of data and continuously strive for improvement stand to gain most from cognitive automation, which brings intelligence to RPA.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What is RPA?
 
@@ -47,11 +54,28 @@ This blog is an abridged version of an article (The Impact of RPA on GDPR) that 
 
 ![Anthony Macciola ABBYY](https://static4.abbyy.com/abbyycommedia/25717/anthonymacciola-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Anthony Macciola
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -106,8 +130,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,4 +137,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-revolutionize-your-designs-incorporating-3d-text-psx/"><u>[New] 2024 Approved Revolutionize Your Designs Incorporating 3D Text PSX</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-streamlining-audio-exploration-how-to-add-apple-podcasts-to-your-device/"><u>[Updated] Streamlining Audio Exploration How to Add Apple Podcasts to Your Device</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/buy-the-advanced-macx-video-converter-professional-edition/"><u>Buy the Advanced MacX Video Converter Professional Edition</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortlessly-change-your-movies-to-mp4-files-a-comprehensive-walkthrough-using-mp4-movie-converter/"><u>Effortlessly Change Your Movies to MP4 Files: A Comprehensive Walkthrough Using MP4 Movie Converter</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortlessly-upgrading-codecs-a-comprehensive-guide-to-converting-h264-to-h265-while-preserving-quality/"><u>Effortlessly Upgrading Codecs: A Comprehensive Guide to Converting H.264 To H.265 While Preserving Quality</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-simplified-path-to-viewing-popular-youtube-comments/"><u>In 2024, Simplified Path to Viewing Popular YouTube Comments</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/itunes-troubleshooting-handbook-comprehensive-error-fixes-and-tips-for-2018/"><u>ITunes Troubleshooting Handbook: Comprehensive Error Fixes and Tips for 2018</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/master-the-art-of-modifying-webex-meeting-captures-a-comprehensive-tutorial/"><u>Master the Art of Modifying Webex Meeting Captures - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/maximizing-your-software-access-a-step-by-step-guide-on-legally-obtaining-anydvd-full-version-and-understanding-piracy-risks/"><u>Maximizing Your Software Access: A Step-by-Step Guide on Legally Obtaining AnyDVD Full Version and Understanding Piracy Risks</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/navigating-the-aspect-ratio-maze-for-twitter-media/"><u>Navigating the Aspect Ratio Maze for Twitter Media</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-elevate-your-storytelling-how-to-edit-canon-videos-with-professional-results/"><u>New 2024 Approved Elevate Your Storytelling How to Edit Canon Videos with Professional Results</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube-for-2024/"><u>Streamlining the Process of Finding Your Own Musical Compilation on Youtube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-end-video-refresher-resolution-renaissance/"><u>Top-End Video Refresher Resolution Renaissance</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/tutorial-converting-protected-dvd-content-onto-mobile-hard-drives-iphone-ipad-android/"><u>Tutorial: Converting Protected DVD Content Onto Mobile Hard Drives (iPhone, iPad, Android)</u></a></li>
+</ul></div>
 

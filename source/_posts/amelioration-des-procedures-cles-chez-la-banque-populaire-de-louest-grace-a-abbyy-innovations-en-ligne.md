@@ -1,46 +1,22 @@
 ---
 title: Amélioration Des Procédures Clés Chez La Banque Populaire De L'Ouest Grâce À ABBYY - Innovations en Ligne
-date: 2024-09-05T11:11:22.092Z
-updated: 2024-09-06T11:11:22.092Z
+date: 2024-10-04T04:30:09.519Z
+updated: 2024-10-05T19:45:16.775Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2077f1c448ea137a042adda99cddc314210e831040b4d1625093a313f8396691.JPG
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amélioration Des Procédures Clés Chez La Banque Populaire De L'Ouest Grâce À ABBYY - Innovations en Ligne
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY contribue à l’optimisation de processus métiers clés de la Banque Populaire de l’Ouest
 
 19 janvier 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Le traitement automatisé des documents modernise la gestion des dossiers crédits et successions**  
   
 ABBYY Europe, acteur majeur de la reconnaissance de documents, de la capture de données et des technologies linguistiques, annonce aujourd’hui avoir mené avec succès deux projets documentaires stratégiques pour la Banque Populaire de l’Ouest, une des maisons mère de BPCE, deuxième groupe bancaire en France. Ces projets ont été mis en place grâce à ADOC Solutions, un partenaire certifié « GOLD » des solutions ABBYY.
@@ -91,8 +67,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -100,4 +74,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discover-blog.techidaily.com/wmv-wav/"><u>.wmv ファイルの .wavへの高速変換方法</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-direct-focus-the-power-of-leading-lines-in-iphone-photos/"><u>[New] Direct Focus The Power of Leading Lines in iPhone Photos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitta-visuals-audio-extraction-services/"><u>[New] In 2024, Twitta Visuals Audio Extraction Services</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-virtual-visage-creation-shaping-your-exaggerated-image-for-2024/"><u>[New] Virtual Visage Creation Shaping Your Exaggerated Image for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-9plus-innovative-strategies-for-streaming-live-cricket-events/"><u>[Updated] 2024 Approved 9+ Innovative Strategies for Streaming Live Cricket Events</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/44cm54sh5paz44gu44oe44o844or44ke44km44kn44ow44k144kk44oi44gn44cb44ow44op44km44k244gl44kj6auy5zob6loq44gq6zplusz5aow44ks6kiy6yyy44gz44kl44gf44kb44gu5pya6ygp569/"><u>「無料のツールやウェブサイトで、ブラウザから高品質な音声を記録するための最適手法」</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-tecno-spark-go-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-techniques-to-spin-your-videos-on-windows-11-a-three-step-guide/"><u>Effortless Techniques to Spin Your Videos on Windows 11: A Three-Step Guide</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/exploring-alternatives-discover-the-ovi-and-app-stores/"><u>Exploring Alternatives: Discover the Ovi and App Stores</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-steam-error-code-130-solved/"><u>How to Fix Steam Error Code 130? [SOLVED]</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-the-digital-world-top-picks-and-reviews-by-toms-computer-essentials/"><u>Mastering the Digital World: Top Picks & Reviews by Tom's Computer Essentials</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-tools-for-flv-video-editing-effortless-online-and-offline-cutting-options/"><u>Top Tools for FLV Video Editing: Effortless Online and Offline Cutting Options</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transforming-folders-into-iso-images-a-comprehensive-tutorial/"><u>Transforming Folders Into ISO Images: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-the-best-2024-gaming-laptops-performance-rankings-inside/"><u>Ultimate Guide to the Best 2024 Gaming Laptops - Performance Rankings Inside</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-maximizing-performance-with-ideal-obs-settings-on-entry-level-systems/"><u>Ultimate Guide: Maximizing Performance with Ideal OBS Settings on Entry-Level Systems</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/universal-playlist-protocol-capturing-broadcasts-for-every-device/"><u>Universal Playlist Protocol: Capturing Broadcasts for Every Device</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>Updated In 2024, How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wonderfox-dvd-ripping-software-installed-fast-and-easy/"><u>WonderFox DVD Ripping Software Installed - Fast and Easy</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Boosting Healthcare Success: Masterful Techniques for Streamlining Referrals and Bookings"
-date: 2024-08-25T23:06:24.056Z
-updated: 2024-08-26T23:06:24.056Z
+date: 2024-09-28T16:19:45.394Z
+updated: 2024-10-06T00:39:20.423Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d64275a707a4eb2f0cc766f8.jpg
@@ -26,8 +26,6 @@ Platform Options On-premise Servers SaaS Cloud Picking the perfect platform (for
 From simple documents to valuable intelligence Anyone who has worked with faxed documents in the past can relate to this unfortunate scenario: Staﬀ return to the clinic on Monday morning and ﬁnd documents from the fax machine strewn all over the ﬂoor. Orcutt has witnessed this common occurrence. Electronic transition of referrals can help; however, the electronic documents are still sitting in the queue. “They’re a little neater, but they can still be lost in the digital abyss, and staﬀ members still might transcribe patient and insurance information incorrectly,” he pointed out. Advanced technologies such as IDP and RPA can help healthcare organizations bring referral management to the next level. These technologies can transform data from business and clinical-critical documents into actionable intelligence, driving real-time automation and improved clinical and revenue cycle outcomes. IDP, for example, employs advanced technologies such as optical character recognition, natural language processing and machine learning to automate the extraction, interpretation and processing of data from various documents. By streamlining manual document-related tasks, IDP enhances eﬃciency, accuracy and compliance. The technology also helps add signiﬁcant speed to the referral management process. Consider the following: “If there’s a spreadsheet, the technology could do a thousand checks before our human can do one simple check. There’s logic built into it, so the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next,” Rodgers explained. \[With intelligent document processing,\] the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next.” ROBERT RODGERS [What is Intelligent Document Processing,](https://tools.techidaily.com/abbyy/products/) [and How Does It Work?](https://tools.techidaily.com/abbyy/products/) Learn what this technology can do for your organization. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES STREAMLINING YOUR REFERRALS 
 
 www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive signiﬁcant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA, and oﬃces in 12 countries, and is the [Oﬃcial Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/](https://tools.techidaily.com/abbyy/products/) and follow us on LinkedIn, Twitter , Facebook and Instagram. Reaching the holy grail: Straight-through processing for referrals Advanced technologies might be the antidote to long- held referral management challenges and can drive the customer-service mentality many forward-thinking companies have embraced. Indeed, IDP automatically pulls the patient and referral information from the fax or email attachment and populates the electronic health record or appointment system, eliminating the need to manually enter data. Such technology has been shown to save a provider 10 minutes per referral. This technology could potentially result in “straight-through processing,” automating the entire referral process all the way to scheduling an appointment with the specialist. “Sure, some organizations might not use the technology to go all the way to scheduling a patient right away, but they might send the patient an SMS text that links to the specialist’s calendar and enables the patient to set up their appointment,” Rodgers noted. The technology not only results in cost avoidance by eliminating the need to rely on staﬀ to process referrals but can also potentially bring in additional revenue. Consider the following: By leveraging this technology, HCOs could optimize the revenue that they collect from diagnostic services. “If your HCO has an MRI machine, and your equipment is underutilized, the HCO will be missing out on revenue. Being eﬀective at taking in external referrals to ensure you are highly utilizing your MRI machine can result in additional net revenue for many specialists,” he pointed out. The technology also holds signiﬁcant promise for patients like Mary, who could have experienced much less anxiety, not to mention improved clinical results, if she had been able to quickly schedule an appointment with a specialist. These beneﬁts can put HCOs in a position to succeed. “The technology not only closes the gap on the leakage, but it also enables healthcare organizations to get a one-up on competitors. The patient’s only going to wait so long before they’re going to go somewhere else. Organizations risk tarnishing their reputations if they consistently make patients wait,” Rodgers concluded. [Contact us](https://tools.techidaily.com/abbyy/products/) for a demo of referral management. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES AUTOMATING YOUR PROCESSES 
-
-
 
 [abbyy.com](https://tools.techidaily.com/abbyy/products/)
 
@@ -69,8 +67,6 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,9 +74,27 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-oneplus-ace-2-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from OnePlus Ace 2 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/assessing-video-broadcast-tools-wirecasts-place-for-2024/"><u>Assessing Video Broadcast Tools WireCast's Place for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/bridging-the-gap-for-stuck-files-in-windows-11-ecosystems/"><u>Bridging the Gap for Stuck Files in Windows 11 Ecosystems</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-lava-blaze-2-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Lava Blaze 2 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-se-2020-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account On iPhone SE (2020)?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-tecno-pop-8-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Tecno Pop 8 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimized-with-advanced-analytics-cookiebots-expertise/"><u>Optimized with Advanced Analytics: Cookiebot's Expertise</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimized-with-advanced-retargeting-technology-from-cookiebot/"><u>Optimized with Advanced Retargeting Technology From Cookiebot</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/pioneering-progress-in-insurance-strategies-for-success-with-future-focused-solutions/"><u>Pioneering Progress in Insurance: Strategies for Success with Future-Focused Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/revolutionizing-public-sector-operations-the-intelligent-automation-era-government-technology-podcast-insights/"><u>Revolutionizing Public Sector Operations: The Intelligent Automation Era - Government Technology Podcast Insights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-honor-magic-5-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Honor Magic 5 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transform-your-practice-abbyys-advanced-solutions-for-smart-legal-operations/"><u>Transform Your Practice: ABBYY's Advanced Solutions for Smart Legal Operations</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

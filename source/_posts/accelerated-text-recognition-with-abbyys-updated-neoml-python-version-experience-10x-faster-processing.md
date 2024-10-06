@@ -1,7 +1,7 @@
 ---
 title: Accelerated Text Recognition with ABBYY’s Updated NeoML Python Version – Experience 10X Faster Processing!
-date: 2024-08-25T23:04:47.345Z
-updated: 2024-08-26T23:04:47.345Z
+date: 2024-10-02T00:38:07.112Z
+updated: 2024-10-05T18:05:36.667Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace6815f6a294b656d072c86df72.jpg
@@ -18,6 +18,19 @@ June 22, 2021
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 ![News Machinelearning](https://static1.abbyy.com/abbyycommedia/33738/news-machinelearning.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### NeoML offers 50% faster performance than other popular open-source machine learning libraries.
 
@@ -40,8 +53,12 @@ To learn more about NeoML, please visit: <https://github.com/neoml-lib/neoml>
 To learn more about ABBYY’s Digital Intelligence solutions, please visit: <https://www.abbyy.com/>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/).[](https://tools.techidaily.com/abbyy/products/)
@@ -49,16 +66,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ABBYY editorial contact
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Catherine Johnson
 
 [catherine.johnson@abbyy.com](https://tools.techidaily.com/abbyy/products/)
@@ -66,8 +83,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Gina Ray, APR
 
 (949) 370-0941
@@ -82,8 +103,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +110,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://driver-error.techidaily.com/incident-wireless-mouse-not-recognized-by-os/"><u>[Incident] Wireless Mouse Not Recognized by OS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-blend-unique-web-humor-freshly-made/"><u>[Updated] Blend Unique Web Humor Freshly Made</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-cutting-edge-solutions-for-webmicrone-capture-with-these-9-tools-23/"><u>[Updated] In 2024, Cutting-Edge Solutions for Webmicrone Capture with These 9 Tools ('23)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discover-the-action-packed-features-of-ion-air-pro-3/"><u>[Updated] In 2024, Discover the Action-Packed Features of ION Air Pro 3</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>[Updated] In 2024, Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/digiartydvd-iphone-nexus7/"><u>春爛漫! 桜キャンペーン開始 - Digiartyライセンスなしで変更できる無料DVD iPhone / Nexus7用コード配布</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ai4/"><u>AI顔変更フリーアプリを使った簡単なビデオ編集！今すぐ楽しめる4つのおススメ！</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722992340821-cyberpunk-2077s-freezing-issue-resolved-play-smoothly-now/"><u>Cyberpunk 2077'S Freezing Issue Resolved – Play Smoothly Now</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-aac-encoder-and-decoder-software-no-charge-windows-pc-compatible/"><u>Download AAC Encoder & Decoder Software - No Charge | Windows PC Compatible</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-meizu-21-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Meizu 21 Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-10-zuverlassige-video-konvertierungstools-fur-windows-1011-sichere-und-schnelle-optionen-erkunden/"><u>Top 10 Zuverlässige Video Konvertierungstools Für Windows 10/11: Sichere Und Schnelle Optionen Erkunden</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-samsung-galaxy-s24-gear-and-peripherals-the-ultimate-selection/"><u>Top-Rated Samsung Galaxy S24 Gear and Peripherals: The Ultimate Selection</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/troubleshoot-and-repair-dvd-ripping-failures-with-makemkv-disc-opening-problems-solved/"><u>Troubleshoot and Repair DVD Ripping Failures with MakeMKV – Disc-Opening Problems Solved!</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1725290083145-ai-winxvideo-webcam/"><u>오늘날의 최고 AI: WinxVideo - 화면, Webcam 및 오디오 기록에 탁월성</u></a></li>
+</ul></div>
 

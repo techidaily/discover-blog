@@ -1,24 +1,12 @@
 ---
 title: Master Image Management + Transform Contact Lists Into Excel-Compatible CSV Files - Tips From the ABBYY Team
-date: 2024-09-05T11:11:23.442Z
-updated: 2024-09-06T11:11:23.442Z
+date: 2024-09-30T03:14:04.099Z
+updated: 2024-10-05T17:59:32.912Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13a2ed7d3d473fc4b094f952faefa5141a38181bbb0354fc87e696c7a5f69650.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Master Image Management + Transform Contact Lists Into Excel-Compatible CSV Files - Tips From the ABBYY Team
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -29,38 +17,14 @@ December 11, 2018
 
 ![](https://static1.abbyy.com/abbyycommedia/26630/mobile-monday-61.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 There are thousands of photos in phones, but most of us don’t know about useful features in standard Galleries. Today we’ll unleash their potential. We’ll also show how you can export CSV to Excel, and have fun with optical illusions.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## iOS Tips: Managing Your Photos and Videos
 
 The Photos app on your iPhone is capable of much more than just displaying your snapshots. At the bottom of the screen, there sits a very useful pop-up menu.
 
 ![photos on iphone](https://static1.abbyy.com/abbyycommedia/26631/img_3875.png) ![share photos on iphone](https://static1.abbyy.com/abbyycommedia/26632/img_3874.png) ![manage pictures on ios](https://static1.abbyy.com/abbyycommedia/26633/img_3873.png) Let’s take a closer look at each of the tools.
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Copy**
 
 The selected photo will be copied to the [clipboard](https://en.wikipedia.org/wiki/Clipboard%5F%28computing%29), from where you can paste it into Messages or Notes. Alas, not all apps support pasting pictures from the clipboard (the best way to find out is just try and paste a picture).
@@ -106,11 +70,18 @@ As an example, we will take the standard Gallery app pre-installed on popular Sa
 ![samsung gallery](https://static1.abbyy.com/abbyycommedia/26637/samsung1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Share**
 
 Just like in iOS, you can easily share links to media content with your friends, who will be able to view and download the respective files.
@@ -124,11 +95,18 @@ Select photos or videos that you want to share with someone, say, with your fami
 The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, videos or music directly to their TVs.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **ABBYY Tip: Opening CSV Files in Excel**
 
 [Business Card Reader](http://qrs.ly/iw4uqj5) can export data from business cards to a [CSV](https://en.wikipedia.org/wiki/Comma-separated%5Fvalues) file, which you can then open in Microsoft Excel. All the contact information will be neatly arranged in columns for easy access. To export your business card data to Microsoft Excel, complete the following steps:
@@ -151,14 +129,22 @@ If you like toying with optical illusions, you’ll like this app. Meet Kubic, a
 ![kubic app](https://static1.abbyy.com/abbyycommedia/26638/img_3879.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Kubic provides a good workout for your brain and encourages abstract thinking. The app includes a big collection of visual tricks to deceive your eyes. The impossible geometrical shapes may seem realistic enough, but just when you expect everything to fall into place, you realize that it’s just an optical illusion.
 
 ![creativity](https://static1.abbyy.com/abbyycommedia/26639/img_3881.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Available on [iOS](https://itunes.apple.com/br/app/kubic/id1115010672?l=en) and [Android](https://play.google.com/store/apps/details?id=com.appsolutegames.kubic&hl=ru).
 
@@ -223,8 +209,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -232,4 +216,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-vlogging-quality-the-ultimate-12-recommended-cam-picks-for-2024/"><u>[Updated] Elevate Vlogging Quality - The Ultimate 12 Recommended Cam Picks for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-into-the-future-microsofts-hololens-breakthrough/"><u>[Updated] Step Into the Future Microsoft's HoloLens Breakthrough</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-commercial-free-chrome-firefox-android-and-iphone-tips/"><u>2024 Approved YouTube's Commercial Free Chrome, Firefox, Android & iPhone Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bridging-worlds-fusing-photos-into-majestic-tiles-for-2024/"><u>Bridging Worlds Fusing Photos Into Majestic Tiles for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/chip-vonburg-takes-on-the-role-of-chief-customer-officer-at-abbyy/"><u>Chip VonBurg Takes on the Role of Chief Customer Officer at ABBYY</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-insights-enhance-your-sites-seo-effortlessly/"><u>Cookiebot-Driven Insights: Enhance Your Site's SEO Effortlessly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhanced-personalization-boost-your-sites-user-experience/"><u>Cookiebot-Enhanced Personalization: Boost Your Site's User Experience</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effektives-monitoring-und-berichterstattung-fur-abbyy-flexicapture-optimierung-ihres-unternehmenserfolgs/"><u>Effektives Monitoring Und Berichterstattung Für ABBYY FlexiCapture: Optimierung Ihres Unternehmenserfolgs</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhancing-automation-intelligence-the-synergy-of-abbyy-and-blue-prism-in-transforming-digital-labor/"><u>Enhancing Automation Intelligence: The Synergy of ABBYY & Blue Prism in Transforming Digital Labor</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/erweiterte-funktionen-der-ediscovery-losung-von-deloitte-erhohen-effizienz-und-leistung/"><u>Erweiterte Funktionen Der eDiscovery-Lösung Von Deloitte Erhöhen Effizienz Und Leistung</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/harnessing-ai-for-enhanced-compliance-and-robust-fraud-prevention-in-the-financial-sector/"><u>Harnessing AI for Enhanced Compliance and Robust Fraud Prevention in the Financial Sector</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/modernisierung-mit-abbyy-die-zuverlassige-formularprufungslosung-die-duderstadt-vorfuhrt/"><u>Modernisierung Mit ABBYY: Die Zuverlässige Formularprüfungslösung, Die Duderstadt Vorführt!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-mix-fold-3-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Mix Fold 3 Phone Now with These Tips</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/personalizing-ai-prose-training-chatgpt-to-reflect-you/"><u>Personalizing AI Prose: Training ChatGPT to Reflect You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-upgrading-32-bit-win10-to-64-bit/"><u>Step-by-Step Guide: Upgrading 32-Bit Win10 to 64-Bit</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-performance-issues-steady-frames-in-call-of-duty-modern-warfare-2-on-pc/"><u>Troubleshooting Performance Issues: Steady Frames in Call of Duty Modern Warfare ^2 on PC</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-mastering-the-art-of-perfect-selfies-with-professional-lights/"><u>Ultimate Guide: Mastering the Art of Perfect Selfies with Professional Lights</u></a></li>
+</ul></div>
 

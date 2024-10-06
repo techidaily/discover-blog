@@ -1,46 +1,22 @@
 ---
 title: Enhance Digital Marketing with the Cookiebot Technology Stack
-date: 2024-09-05T11:11:23.233Z
-updated: 2024-09-06T11:11:23.233Z
+date: 2024-10-02T20:37:08.848Z
+updated: 2024-10-05T20:25:04.079Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd18e8bc3c9f273d09d135719fd511870ffe57b02ca619c624658544faadfc68.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhance Digital Marketing with the Cookiebot Technology Stack
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## DXを加速させるエンタープライズ向けデジタルインテリジェンスのパワー
 
 9月2日, 2020
 
 ![Digital Intelligence for the Enterprise | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/29319/8851e_blog_abbyy-technology-summit-2017-ignites-momentum-for-oneabbyyblog.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 「ABBYYでは、今日の最もチャレンジングな課題を解決するためにAIを活用しています。」 ABBYYの最高イノベーション責任者（CIO）であるAnthony Macciolaは、Unite.AIへのインタビューにて、 ABBYYがどのように自然言語処理、機械学習、ニューラルネットワークなどのAIテクノロジーを活用し、企業に対してビジネスプロセスとそれらを刺激するコンテンツとデータの理解を深めるための必要なツールを提供し、デジタルインテリジェンスソリューションを強化しているかを語っています。
 
 Macciolaは、デジタルインテリジェンスについて、「業界によらず、企業がプロセスを最適化し、データから具体的な価値を生み出し、組織の効率を高め、利益率を高めることを可能にするクロスインダストリーソリューションである」と説明しています。 「私たちABBYYは、さまざまな業界の企業にDX（デジタルトランスフォーメーション）を加速させ、顧客に価値を提供する新しい機会を開くためのソリューションを提供します。」とも説明しています。 
@@ -54,11 +30,12 @@ DX（デジタルトランスフォーメーション）イニシアチブを加
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -113,8 +90,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,4 +97,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-optimize-video-audio-discovering-affordable-wav-extraction-methods/"><u>[New] Optimize Video Audio Discovering Affordable WAV Extraction Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-mastery-the-top-10-steps-to-optimize-engagement-for-2024/"><u>[Updated] Instagram Mastery The Top 10 Steps to Optimize Engagement for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/empowered-with-cookiebot-technology-for-superior-analytics/"><u>Empowered with Cookiebot Technology for Superior Analytics</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-digital-marketing-campaigns-using-advanced-cookiebot-solutions/"><u>Enhance Digital Marketing Campaigns Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-online-presence-efficiently-using-the-innovative-features-of-cookiebot-solutions/"><u>Enhance Online Presence Efficiently Using the Innovative Features of Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhance-your-sites-performance-using-the-powerful-tools-of-cookiebot/"><u>Enhance Your Site's Performance Using the Powerful Tools of Cookiebot</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhanced-performance-through-advanced-analytics-technology/"><u>Enhanced Performance Through Advanced Analytics Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhanced-targeting-with-our-cookiebot-driven-analytics-solutions/"><u>Enhanced Targeting with Our Cookiebot-Driven Analytics Solutions</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/enhancing-digital-marketing-with-advanced-cookiebot-technology/"><u>Enhancing Digital Marketing with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/erweiterung-der-markteinfuhrungsgeschwindigkeit-von-carlsberg-biere-durch-integration-von-abbyy-technologie/"><u>Erweiterung Der Markteinführungsgeschwindigkeit Von Carlsberg Biere Durch Integration Von ABBYY Technologie</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-techniques-for-blurring-and-excising-picture-borders/"><u>In 2024, Techniques for Blurring and Excising Picture Borders</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-itel-p55plus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Itel P55+ FRP</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/marketers-methods-detecting-illusory-engagement-signals/"><u>Marketers’ Methods Detecting Illusory Engagement Signals</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-strategies-for-detaching-soundtracks-from-footage-for-2024/"><u>New Strategies for Detaching Soundtracks From Footage for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/prime-cloud-call-recorder-pros-for-2024/"><u>Prime Cloud Call Recorder Pros for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/project-pics-blend-outside-focus-with-radial-filters-psx/"><u>Project Pics Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://win-guides.techidaily.com/unveiling-microsofts-new-ai-feature-revolutionize-your-workflow-with-their-innovative-copy-and-paste-functionality-insider-tips-on-usage-techcrunch/"><u>Unveiling Microsoft's New AI Feature: Revolutionize Your Workflow with Their Innovative Copy-and-Paste Functionality - Insider Tips on Usage | TechCrunch</u></a></li>
+</ul></div>
 

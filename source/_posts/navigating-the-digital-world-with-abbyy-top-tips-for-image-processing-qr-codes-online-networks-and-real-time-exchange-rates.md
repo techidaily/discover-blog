@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Digital World with ABBYY: Top Tips for Image Processing, QR Codes, Online Networks & Real-Time Exchange Rates"
-date: 2024-08-25T23:06:09.365Z
-updated: 2024-08-26T23:06:09.365Z
+date: 2024-09-30T18:17:46.474Z
+updated: 2024-10-05T17:23:51.508Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48f1b4b94f775b917cb35db1cb2a6e0b4e7bb5a94596326658045bbf739cd9ff.jpg
@@ -40,6 +40,13 @@ Below are a few special effects that can be applied to Live Photos:
 Loop turns your Live Photo into a video loop, Bounce makes your photo rock back and forth, and Long Exposure allows you to capture the elements of time and movement, just like in DSLR cameras.
 
 ![Long Exposure iPhone 6S Live Photos](https://static1.abbyy.com/abbyycommedia/26346/long-exposure.png)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Planning to take a group photo? Try Timer that sets the countdown (from 3 to 10 seconds) and lets you create amazing photos where all of your friends will make it in the shot.
 
@@ -81,6 +88,13 @@ This mode works the other way around, it records a video over certain periods of
 
 Another feature that was made available in [iOS 11](https://www.apple.com/ios/ios-11/) Camera is QR code recognition. To activate the function, go to **Settings** → **Camera** and turn on **QR code scanning**. Hovering a camera over a QR code will prompt a notification with further suggestions, for example, to open a link from the code in [Safari](https://www.apple.com/safari/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Features of Cameras on Android**
 
 Android devices are a bit more complicated then iOS. All major smartphone producers develop their own camera features. New camera phones that hit the market in 2017-2018 are [Google Pixel 2](https://store.google.com/us/product/pixel%5F2?hl=en-US), [Huawei P20 Pro](https://consumer.huawei.com/en/phones/p20-pro/), [Samsung S9](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fsmartphones%2Fgalaxy-s9%2F), and [Sony Xperia Z5](https://www.sonymobile.com/global-en/products/phones/#gref). Based on the results of multiple tests, Google Pixel 2 was recognized to be the best among smartphones in 2017\. However, today we decided to address features of the advanced, popular, and innovative camera in [Samsung S8](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fgalaxy-s8%2F).
@@ -92,26 +106,24 @@ Do you want to take original one-of-a-kind photos with S8? Use built-in filters.
 ![Filters Food mode Camera Android](https://static1.abbyy.com/abbyycommedia/26349/food-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Pro mode**
 
 The Pro mode allows you to take professional photos with three types of settings: Exposure time, Exposure, and White Balance. To activate the mode, swipe right and click Pro. Here you can configure shutter speed, white balance, and exposure level. This mode allows you to set the focus and configure exposure and sensitivity just like in professional DSLR cameras.
 
 ![exposure Pro mode Camera Android](https://static1.abbyy.com/abbyycommedia/26350/exposure-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 **Dynamic focus**
 
 Want to add a blurry background on Samsung S8? There is no need to install third-party applications for this purpose. Camera on Samsung features three types of focusing: close, far, and panoramic. Dynamic focusing lets you adjust image sharpness and focus depth. With this mode, you may take portrait images of two types: regular and wide angle.
 
 ![Dynamic focus Camera Android Samsung S8](https://static1.abbyy.com/abbyycommedia/26351/dynamic-focus-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Dual Pixel technology**
 
 [Dual Pixel](https://www.gsmarena.com/samsungs%5Fdual%5Fpixel%5Ftech%5Fis%5Flike%5Fcanons%5Fdual%5Fpixel%5Fauto%5Ffocus-news-16805.php) enables you to take focused pictures in motion and in places with bad lighting. This technology will catch every moment even if you are on the move.
@@ -122,9 +134,6 @@ Samsung surely follows modern trends. The frontal camera of Samsung [S8](https:/
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 **Object recognition**
 
 Samsung camera is trained to recognized objects on photos and search for similar images in the internet with the [Bixby](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fapps%2Fbixby%2F) assistant. To activate Bixby, click the special button on your phone. Point your camera at an object or a landscape and the assistant will display related images and links that you can follow to buy these objects on the internet.
@@ -153,6 +162,13 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Valuta+ Currency Converter**
 
 Are you planning on going abroad but still afraid that you won’t know the exchange rate? Meet [Valuta+](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) — a fast and easy-to-use currency converter that works anywhere you want, does not rely on the internet connection, and, most importantly, is available for free!
@@ -160,8 +176,12 @@ Are you planning on going abroad but still afraid that you won’t know the exch
 ![App Valuta+ Currency Converter ios](https://static1.abbyy.com/abbyycommedia/26353/currency1-1.png)![iphone android application valuta+ currency](https://static1.abbyy.com/abbyycommedia/26354/currency2-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 This user-friendly app converts over 170 currencies, works offline, and has a favorites list.
 
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
@@ -172,9 +192,6 @@ _By Elizaveta Titarenko, Copywriter_
 
 ![abbyy advice rock climbing wall](https://static1.abbyy.com/abbyycommedia/26355/elizaveta-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 Why engage in rock climbing?
 
 Over a year ago I went to a climbing wall for the first time. It helped to keep myself in good shape, develop endurance and stamina, and find new friends. Before I took up rock climbing I though that this is a sport only for professionals, those with steel muscles and will. But I was wrong.
@@ -192,6 +209,13 @@ That’s all for today. See you next Monday!
 P.S. Go [here](https://tools.techidaily.com/abbyy/products/), to check our previous issue.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -248,8 +272,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -257,4 +279,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-perfect-pixel-a-guide-to-captivating-pc-gaming-moments/"><u>[Updated] In 2024, The Perfect Pixel A Guide to Captivating PC Gaming Moments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-the-secrets-of-alluring-vlog-narratives/"><u>[Updated] In 2024, Unlocking the Secrets of Alluring Vlog Narratives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-probing-into-youtubes-decision-making-for-prominent-remarks/"><u>2024 Approved Probing Into YouTube's Decision-Making for Prominent Remarks</u></a></li>
+<li><a href="https://win-forum.techidaily.com/advanced-techniques-to-delete-secure-files-and-directories-in-modern-windows-os/"><u>Advanced Techniques to Delete Secure Files and Directories in Modern Windows OS</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/come-installare-e-utilizzare-capcut-su-computer-windows-guida-completa/"><u>Come Installare E Utilizzare CapCut Su Computer Windows: Guida Completa</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/demystifying-drm-a-comprehensive-guide-to-what-it-is-and-how-it-operates/"><u>Demystifying DRM: A Comprehensive Guide to What It Is and How It Operates</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/free-online-converter-change-mkv-files-to-avi-format-with-movavi/"><u>Free Online Converter: Change MKV Files to AVI Format with Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/how-to-access-view-and-enjoy-h264-media-files-on-both-pcs-and-mac-devices/"><u>How To Access, View And Enjoy H.264 Media Files On Both PCs and Mac Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-unlocking-screen-record-features-in-hp-computers/"><u>In 2024, Unlocking Screen Record Features in HP Computers</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/official-solutions-to-fix-your-frequent-imovie-crashes/"><u>Official Solutions to Fix Your Frequent iMovie Crashes</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/online-m4r-movavi/"><u>Online 무료 비디오 M4R파일 바이트 단위로 변환: Movavi의 속도적인 방법</u></a></li>
+</ul></div>
 
