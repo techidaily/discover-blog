@@ -1,7 +1,7 @@
 ---
 title: How To Easily Set Up The Newest Version of Scrubs Addon for Kodi – A Visual Tutorial
-date: 2024-10-15T16:48:50.654Z
-updated: 2024-10-17T18:01:43.905Z
+date: 2024-10-20T17:43:15.856Z
+updated: 2024-10-23T16:16:02.270Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec185562726cc3d8ded22c5ffb968132.jpg
@@ -75,6 +75,13 @@ Open HD Video Converter Factory Pro and go into the **Converter** module. Click 
 
 ![Add OGG Files to the Program](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-01.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Add OGG Files to the Program](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-01-01.webp) 
 
 **Step 2\. Choose MP3 as Output Format**
@@ -85,21 +92,7 @@ Below the format image, you can navigate to the **Parameter settings** section t
 
 ![Choose MP3 as Output Format](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-03.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Choose MP3 as Output Format](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-03-03.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3\. Start Conversion**
 
@@ -108,28 +101,21 @@ Click the triangle button at the bottom to set an output folder or leave it as d
 ![Start Conversion with the Best OGG to MP3 Converter](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-04.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Start Conversion with the Best OGG to MP3 Converter](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-04-04.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Best Audio Format and Codec Converter](https://www.videoconverterfactory.com/tips/imgs-self/box-hdpro.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Best Audio Format&Codec Converter
@@ -137,6 +123,13 @@ Best Audio Format&Codec Converter
 WonderFox HD Video Converter Factory Pro is a top-rated audio format & codec converter that enables you not only change format container but also its codec, bitrate, sample rate, etc., effortlessly on Windows. Try it now!
 
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://us.videoconverterfactory.com/download/hd-video-converter-pro.exe?from=best-ogg-to-mp3-converter.html/d/ban1) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/hd-video-converter/mobile-checking.html?from=best-ogg-to-mp3-converter.html/m/ban1) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  \* Know more features of [HD Video Converter Factory Pro >](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
@@ -165,18 +158,18 @@ Step 1\. Open Audacity.
 
 ![Convert OGG in Audacity Free](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-05-05.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 4\. Choose a location and give a new filename. In the **Format Options** section, you can select an audio bitrate mode, the output quality, and audio channel. After that, click **Save** to start the conversion.
 
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07.webp) 
 
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07-07.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Best OGG to MP3 Converters Online - Convertio
 
@@ -205,7 +198,21 @@ Step 5\. Hit the Download button to save the converted files.
 
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06-06.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## In Conclusion 
 
@@ -219,13 +226,6 @@ Similar Articles
 
 ![WonderFox DVD Ripper Pro](https://www.videoconverterfactory.com/tips/imgs-self/box-ripperpro-l.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Digitize All Your DVD Collections Fast and Easily 
 
 * Rip DVD to MP4, MKV, AVI, MP3, OGG and 300+ presets.
@@ -238,14 +238,14 @@ Digitize All Your DVD Collections Fast and Easily
 * Compatible with Windows 11/10/8/7 and lower;
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://us.videoconverterfactory.com/download/dvd-ripper.exe?from=best-ogg-to-mp3-converter.html/d/rec) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/dvd-ripper/mobile-checking.html?from=best-ogg-to-mp3-converter.html/m/rec) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Back to Top](https://www.videoconverterfactory.com/tips/amp-imgs/btt.png "Back to Top")](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,20 +262,17 @@ Digitize All Your DVD Collections Fast and Easily
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-chuckle-centric-ringtone-websites-guide/"><u>[New] Chuckle-Centric Ringtone Websites Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nveil-top-8-websites-with-free-green-screen-video-treasures/"><u>[New] Unveil Top 8 Websites with FREE Green Screen Video Treasures</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-boost-zoom-audio-solutions-for-waveform-woes/"><u>2024 Approved Boost Zoom Audio Solutions for Waveform Woes</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/macdvdquicktime/"><u>最新Mac用の無料DVDをQuickTimeに効率的変換: 高速マルチメディアコンバーター</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-motorola-moto-g-stylus-2023-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Motorola Moto G Stylus (2023) to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/effizienter-fb-video-konverter-fur-optimale-umwandlung-von-videomaterial-auf-facebook/"><u>Effizienter FB-Video-Konverter Für Optimale Umwandlung Von Videomaterial Auf Facebook</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/exclusive-deal-alert-save-up-to-95-on-digiarty-items-special-thank-you-sale-now/"><u>Exclusive Deal Alert: Save up to 95% on Digiarty Items – Special Thank You Sale Now!</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/guide-securely-syncing-iphone-files-with-a-portable-hard-disk-unit/"><u>Guide: Securely Syncing iPhone Files with a Portable Hard Disk Unit</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-guide-to-identifying-recent-instagram-leavers/"><u>In 2024, Guide to Identifying Recent Instagram Leavers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Huawei P60? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-lift-run-and-dance-to-the-beat-of-these-top-20-songs/"><u>In 2024, Lift, Run, and Dance to the Beat of These Top 20 Songs</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-record-ppt-for-screenplay-use/"><u>In 2024, Record PPT for Screenplay Use</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/relcprm/"><u>RelCPRMファイルを成功裏にダウンロードするためのトラブルシューティングガイド</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/ultimate-guide-to-4k-video-downloader-securely-transferring-uhd-footage-from-any-device/"><u>Ultimate Guide to 4K Video Downloader: Securely Transferring UHD Footage From Any Device</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/understanding-icloud-a-comprehensive-guide-on-its-functions-and-usage/"><u>Understanding iCloud: A Comprehensive Guide on Its Functions and Usage</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/udiences-delighted-best-editors-to-transform-youtube-shorts-for-2024/"><u>[New] Audiences Delighted Best Editors to Transform Youtube Shorts for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/anon-mode-unveiling-instagram-stories-across-oses-for-2024/"><u>Anon Mode Unveiling Instagram Stories Across OSes for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-conversion-changing-mov-files-into-ogg-format-quickly/"><u>Easy Conversion: Changing MOV Files Into Ogg Format Quickly</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-guide-to-downloading-house-music-in-mp3-format-two-effective-methods-revealed/"><u>Easy Guide to Downloading House Music in MP3 Format - Two Effective Methods Revealed</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/easy-guide-converting-quicktime-mov-files-to-prores-format-in-windows-11/"><u>Easy Guide: Converting QuickTime MOV Files to ProRes Format in Windows 11</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/efficiently-downsizing-videos-ensuring-excellent-quality-preservation-through-conversion-techniques/"><u>Efficiently Downsizing Videos: Ensuring Excellent Quality Preservation Through Conversion Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-oppo-reno-10-pro-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo Reno 10 Pro 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-creator-to-critic-evaluating-video-value-across-platforms/"><u>From Creator to Critic Evaluating Video Value Across Platforms</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hp-laserjet-p1006-drivers-here/"><u>Get Your HP LaserJet P1006 Drivers Here</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-scoping-out-the-12-most-popular-flip-screen-video-cameras/"><u>In 2024, Scoping Out the 12 Most Popular Flip-Screen Video Cameras</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-8-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 8 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-dota-2-when-it-wont-start-or-gets-frozen-at-the-bootup-screen/"><u>Troubleshooting Steps for Dota 2 When It Won't Start or Gets Frozen at the Bootup Screen</u></a></li>
 </ul></div>
 
