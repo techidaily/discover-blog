@@ -1,7 +1,7 @@
 ---
 title: Guyon's Canal Syndrome Refers to Ulnar Nerve Compression at the Wrist Within a Tunnel Formed by Bones and Ligaments.
-date: 2024-10-24T16:42:53.797Z
-updated: 2024-10-29T05:57:28.598Z
+date: 2024-10-29T22:06:45.082Z
+updated: 2024-11-04T03:28:04.466Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/25dfc703be5473423edfc66113d30469d26da4408f6261979d298982619597ae.jpg
@@ -152,16 +152,22 @@ Désactivez les services d'arrière-plan pour accélérer votre ordinateur porta
 
 Afficher plus
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Choix spécial : [Gecata by Movavi](https://www.gecata.com/)
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
@@ -182,19 +188,6 @@ Le PC surpasse les consoles à cet égard, car il est toujours possible d'accél
 Cet article vous présente les réglages de performance pour les jeux que vous pouvez effectuer sur Windows 10 pour améliorer votre expérience de jeu.
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 
 
@@ -230,13 +223,6 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
@@ -248,6 +234,13 @@ Pour bénéficier des fonctionnalités de DirectX 12, le jeu doit avoir été d�
 Pour vérifier que vous disposez de la dernière version de DirectX, appuyez sur la   **touche Windows** \+ **R**, tapez "dxdiag" et cliquez sur **OK**. L'outil de diagnostic DirectX s'ouvre.
 
 Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra que quelques minutes. Appuyez sur la   **touche Windows** \+ **I**, choisissez **Mise à jour et sécurité** et cliquez sur **Vérifier les mises à jour** dans l'onglet **Windows. Mise à jour**. Attendez que l'installation se termine.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -281,6 +274,13 @@ Si vous êtes un joueur de nuit ou si vos heures de sommeil varient considérabl
 
 Pour ce faire, retournez à Windows Update, cliquez sur **Advanced options** et assurez-vous que l'interrupteur sous **We'll show a reminder when we're going to restart** est activé.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Réglez les paramètres de vos effets visuels
 
 Les interfaces utilisateur graphiques (IUG) de Windows 10 regorgent d'effets visuels fantaisistes. Néanmoins, ces jolis graphiques d'arrière-plan, dont la plupart sont activés par défaut, peuvent affecter la puissance de traitement disponible de votre PC lorsqu'un jeu est en cours d'exécution au premier plan. Ainsi, une façon d'optimiser Windows 10 pour les performances de jeu est de sacrifier certains, voire tous, ces paramètres.
@@ -296,13 +296,6 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 ### Gérer les mises à jour automatiques de Steam
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
@@ -396,6 +389,13 @@ Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et s
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Surcadencez votre carte graphique
 
 Overclocker vos cartes graphiques signifie les pousser au-delà des spécifications affichées sur la boîte. De nombreuses cartes récentes disposent d'une fonction automatique permettant de le faire dans les paramètres de contrôle, mais il existe également des moyens de le faire manuellement. Veillez à bien connaître votre carte graphique, car si vous repoussez ses limites, elle risque de surchauffer. 
@@ -437,16 +437,16 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Utiliser une alimentation externe
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Utiliser un plan d'alimentation performant
 
@@ -461,23 +461,9 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 
 
@@ -510,15 +496,22 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Foire aux questions 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comment optimiser mon ordinateur pour les jeux ?
@@ -572,6 +565,13 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Avez-vous des questions ?
 
 [Visitez notre centre d'assistance](https://tools.techidaily.com/movavi/products/)
@@ -607,18 +607,21 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-becoming-part-of-the-global-community-your-guide-to-facebook/"><u>[New] In 2024, Becoming Part of the Global Community Your Guide to Facebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-interoperable-iptv-networking/"><u>[Updated] 2024 Approved Interoperable IPTV Networking</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-prime-propeller-picks-unveiling-top-5-motors-for-drones-for-2024/"><u>[Updated] Prime Propeller Picks Unveiling Top 5 Motors for Drones for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-motorola-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Motorola</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/connecting-smartphones-and-tablets-for-live-broadcasts-with-manycam-essential-tips-and-tricks-for-seamless-integration/"><u>Connecting Smartphones & Tablets for Live Broadcasts with ManyCam: Essential Tips & Tricks for Seamless Integration</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-11-how-to-unlock-a-disabled-iphone-11-by-drfone-ios/"><u>Disabled iPhone 11 How to Unlock a Disabled iPhone 11?</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/dynamic-broadcasting-with-manycam-high-quality-live-streaming-tools-and-online-camera-solutions/"><u>Dynamic Broadcasting with ManyCam - High-Quality Live Streaming Tools & Online Camera Solutions</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/dynamic-live-streaming-with-manycam-the-ultimate-web-camera-and-effects-tool/"><u>Dynamic Live Streaming with ManyCam: The Ultimate Web Camera and Effects Tool</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/elevate-your-online-presence-using-manycams-advanced-live-stream-and-virtual-cam-features/"><u>Elevate Your Online Presence Using ManyCam's Advanced Live Stream and Virtual Cam Features</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/elevate-your-online-presence-with-manycam-the-premier-choice-in-live-broadcast-tech/"><u>Elevate Your Online Presence with ManyCam - The Premier Choice in Live Broadcast Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-playstation-4-pro-combining-console-gaming-with-ultra-hd-visuals/"><u>Expert Analysis of the PlayStation 4 Pro: Combining Console Gaming with Ultra HD Visuals</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v29e-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V29e Is Unlocked</u></a></li>
-<li><a href="https://win-webster.techidaily.com/secure-your-ultimate-savings-the-most-exclusive-prime-day-deals-for-high-quality-wall-mount-monitors-available-now-dont-miss-out/"><u>Secure Your Ultimate Savings: The Most Exclusive Prime Day Deals for High-Quality Wall Mount Monitors Available Now - Don't Miss Out!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-15-essential-color-filters-to-elevate-gopro-cinematography/"><u>[New] 15 Essential Color Filters to Elevate GoPro Cinematography</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-navigating-live-streams-on-youtube-and-twitch-with-ease-via-obs/"><u>[New] 2024 Approved Navigating Live Streams on YouTube & Twitch with Ease via OBS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-clear-sight-tech-the-leading-10-mobile-phone-cameras-in-4k/"><u>[New] In 2024, Clear Sight Tech The Leading 10 Mobile Phone Cameras in 4K</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-joy-behind-the-walls-20-funniest-fb-detainment-scenarios/"><u>[Updated] Unlock Joy Behind the Walls 20 Funniest Fb Detainment Scenarios</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/5-optimal-metody-konvertuce-vide-na-format-mp4-pro-apple-macintosh/"><u>5 Optimal Metody Konvertuce Vide Na Formát MP4 Pro Apple Macintosh</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/elevate-your-multimedia-projects-with-winxvideo-ai-professional-videoimage-boosting-software-for-seamless-upgrades/"><u>Elevate Your Multimedia Projects with WinxVideo AI - Professional Video/Image Boosting Software for Seamless Upgrades</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/gratis-converter-voor-dpx-filelen-omzetting-van-online-images-met-movavi/"><u>Gratis Converter Voor DPX-Filelen: Omzetting Van Online Images Met Movavi</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-11-free-youtube-playlist-downloadersonlinepcandroidios/"><u>In 2024, 11 FREE YouTube Playlist Downloaders[Online/PC/Android/iOS)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-chill-out-guide-selecting-inviting-winter-backgrounds/"><u>In 2024, A Chill-Out Guide Selecting Inviting Winter Backgrounds</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mastering-your-slides-the-ultimate-guide-using-movavis-slideshow-app/"><u>Mastering Your Slides: The Ultimate Guide Using Movavi's Slideshow App</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pinnacle-picture-enhancer-resolution-rise/"><u>Pinnacle Picture Enhancer Resolution Rise</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-5-outils-pour-creer-des-intros-percutants-pour-votre-chaine-youtube/"><u>Top 5 Outils Pour Créer Des Intros Percutants Pour Votre Chaine YouTube</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/trasforma-i-tuoi-file-mov-in-mjpeg-gratuitamente-on-line-su-moveave/"><u>Trasforma I Tuoi File MOV in MJPEG Gratuitamente On-Line Su Moveave</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/trasforma-immagini-jpeg-in-gif-gratuitamente-conversione-online-facile-con-movavi/"><u>Trasforma Immagini JPEG in GIF Gratuitamente - Conversione Online Facile Con Movavi</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-the-ultimate-mac-video-editor-mkvtoolnix-features-and-benefits-2023-for-2024/"><u>Updated The Ultimate Mac Video Editor MKVtoolnix Features and Benefits 2023 for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wmvavi-movavi/"><u>WMV/AVI 파일을 원격화하세요: 영구적 대여 제공 - Movavi</u></a></li>
 </ul></div>
 
