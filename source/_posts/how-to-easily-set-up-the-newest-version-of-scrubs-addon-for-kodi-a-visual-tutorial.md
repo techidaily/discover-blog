@@ -1,7 +1,7 @@
 ---
 title: How To Easily Set Up The Newest Version of Scrubs Addon for Kodi – A Visual Tutorial
-date: 2024-11-02T18:09:46.523Z
-updated: 2024-11-03T23:31:29.744Z
+date: 2024-11-09T19:20:02.111Z
+updated: 2024-11-12T18:47:11.167Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec185562726cc3d8ded22c5ffb968132.jpg
@@ -69,6 +69,13 @@ Additional features that come packed with the reliable program include:
 
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://us.videoconverterfactory.com/download/hd-video-converter-pro.exe?from=best-ogg-to-mp3-converter.html/d/but1) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/hd-video-converter/mobile-checking.html?from=best-ogg-to-mp3-converter.html/m/but1) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 1\. Add Multiple OGG Files to the Program**
 
 Open HD Video Converter Factory Pro and go into the **Converter** module. Click on the **\+ Add Files** button or simply drag the OGG files into the workspace directly.
@@ -76,10 +83,10 @@ Open HD Video Converter Factory Pro and go into the **Converter** module. Click 
 ![Add OGG Files to the Program](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-01.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Add OGG Files to the Program](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-01-01.webp) 
@@ -94,13 +101,6 @@ Below the format image, you can navigate to the **Parameter settings** section t
 
 ![Choose MP3 as Output Format](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-03-03.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3\. Start Conversion**
 
 Click the triangle button at the bottom to set an output folder or leave it as default. Then click the **Run** button to start the conversion. 
@@ -109,20 +109,27 @@ Click the triangle button at the bottom to set an output folder or leave it as d
 
 ![Start Conversion with the Best OGG to MP3 Converter](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-04-04.webp) 
 
-![Best Audio Format and Codec Converter](https://www.videoconverterfactory.com/tips/imgs-self/box-hdpro.png) 
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Best Audio Format and Codec Converter](https://www.videoconverterfactory.com/tips/imgs-self/box-hdpro.png) 
 
 Best Audio Format&Codec Converter
 
 WonderFox HD Video Converter Factory Pro is a top-rated audio format & codec converter that enables you not only change format container but also its codec, bitrate, sample rate, etc., effortlessly on Windows. Try it now!
 
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://us.videoconverterfactory.com/download/hd-video-converter-pro.exe?from=best-ogg-to-mp3-converter.html/d/ban1) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/hd-video-converter/mobile-checking.html?from=best-ogg-to-mp3-converter.html/m/ban1) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  \* Know more features of [HD Video Converter Factory Pro >](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
@@ -149,27 +156,20 @@ Step 1\. Open Audacity.
 
 ![Convert OGG in Audacity Free](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-05.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Convert OGG in Audacity Free](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-05-05.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4\. Choose a location and give a new filename. In the **Format Options** section, you can select an audio bitrate mode, the output quality, and audio channel. After that, click **Save** to start the conversion.
 
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07.webp) 
 
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07-07.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Best OGG to MP3 Converters Online - Convertio
 
@@ -198,21 +198,7 @@ Step 5\. Hit the Download button to save the converted files.
 
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06-06.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## In Conclusion 
 
@@ -225,13 +211,20 @@ Similar Articles
 [![Convert DVD to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-1.webp) Convert DVD to MP3](https://tools.techidaily.com/videoconverterfactory/dvd-video-converter/) [![Best Video to MP3 Converter for Windows](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-2.webp) Best Video to MP3 Converter for Windows](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [![Convert WMV to MP4 Windows 10](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-3.webp) Convert WMV to MP4 Windows 10](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![WonderFox DVD Ripper Pro](https://www.videoconverterfactory.com/tips/imgs-self/box-ripperpro-l.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Digitize All Your DVD Collections Fast and Easily 
 
@@ -246,6 +239,13 @@ Digitize All Your DVD Collections Fast and Easily
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://us.videoconverterfactory.com/download/dvd-ripper.exe?from=best-ogg-to-mp3-converter.html/d/rec) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/dvd-ripper/mobile-checking.html?from=best-ogg-to-mp3-converter.html/m/rec) 
 
 [![Back to Top](https://www.videoconverterfactory.com/tips/amp-imgs/btt.png "Back to Top")](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,24 +262,19 @@ Digitize All Your DVD Collections Fast and Easily
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-swift-shift-from-srt-to-text-your-modern-guide-for-speed/"><u>[New] 2024 Approved Swift Shift From SRT to Text Your Modern Guide for Speed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-xml-and-ttml-conversion-to-srt/"><u>[Updated] 2024 Approved Mastering XML & TTML Conversion to SRT</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-maximize-your-inspiration-free-pinterest-video-downloaders/"><u>[Updated] In 2024, Maximize Your Inspiration Free Pinterest Video Downloaders</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-premier-digital-discussion-director/"><u>[Updated] Premier Digital Discussion Director</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/dvd-dvdmp4flvaviiphoneipadandroid/"><u>節省時間並保持品質的高效DVD轉換器 -快速將DVD改編成MP4、FLV及AVI形式，適用iPhone/iPad/Android</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-dapper-durable-lx310bt-turntable/"><u>Discover the Dapper, Durable LX310BT Turntable</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/guide-connecting-your-iphone-to-a-mac-as-an-external-storage-device/"><u>Guide: Connecting Your iPhone to a Mac as an External Storage Device</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-iphone-7-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your iPhone 7? Learn All 4 Methods | Dr.fone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/how-to-easily-swivel-iphone-footage-by-90-or-180-degrees-a-step-by-step-guide/"><u>How to Easily Swivel iPhone Footage by 90 or 180 Degrees – A Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/how-to-restore-sound-in-imovie-when-exporting-as-mp4-or-editing-different-formats/"><u>How to Restore Sound in iMovie When Exporting as MP4 or Editing Different Formats</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-samsung-galaxy-s23plus-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Samsung Galaxy S23+ to Mac? | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-quantum-hdr-essentials/"><u>In 2024, Unveiling Quantum HDR Essentials</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/introducing-macx-video-converter-pro-v6-enhanced-user-interface-and-cutting-edge-compatibility-with-macos-sierra/"><u>Introducing MacX Video Converter Pro v6: Enhanced User Interface & Cutting-Edge Compatibility with macOS Sierra</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/lossless-conversion-techniques-transforming-mxf-files-into-mov-format/"><u>Lossless Conversion Techniques: Transforming MXF Files Into MOV Format</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/mastering-ios-device-care-essential-tips-for-iphone-maintenance-seamless-ipad-transitions-and-reliable-ipod-backups/"><u>Mastering iOS Device Care: Essential Tips for iPhone Maintenance, Seamless iPad Transitions, and Reliable iPod Backups</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/mastering-your-digital-space-with-icloud-an-essential-walkthrough-of-its-features-and-application/"><u>Mastering Your Digital Space with iCloud: An Essential Walkthrough of Its Features and Application</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-early-access-games-a-guide-to-determining-their-value-before-purchase/"><u>Navigating Early Access Games: A Guide to Determining Their Value Before Purchase</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/the-most-entertaining-and-amusing-youtube-shows-for-kids/"><u>The Most Entertaining and Amusing YouTube Shows for Kids</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-how-to-fix-wpd-filesystem-volume-driver-issues/"><u>[SOLVED] How to Fix WPD FileSystem Volume Driver Issues</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cost-effective-recording-devices-the-ultimate-list-for-2024/"><u>[Updated] Cost-Effective Recording Devices The Ultimate List for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-easy-and-professional-photo-editing-with-movavi-download-now/"><u>1. Easy and Professional Photo Editing with Movavi - Download Now</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726222947961-mp3mp4-movavi/"><u>無料の動画ファイル変換サービス - MP3/MP4にリマップ: Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3mpeg-movavi/"><u>無限制線上將音樂MP3變成影片MPEG格式 - 使用Movavi的轉換器指南</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aeiusys-reliable-portable-solar-solution-review-of-a-pure-sine-wave-inverter-designed-for-medical-gear-efficiency/"><u>Aeiusy's Reliable Portable Solar Solution: Review of a Pure Sine Wave Inverter Designed for Medical Gear Efficiency</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/free-and-online-conversion-how-to-transform-your-avi-files-into-quicktime-mov-format/"><u>Free and Online Conversion: How to Transform Your AVI Files Into QuickTime MOV Format</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/gratuit-konverteren-van-jpeg-naar-tiff-effektieve-onlinelosung-bei-movavi/"><u>Gratuit Konverteren Van JPEG Naar TIFF: Effektieve Onlinelösung Bei Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-nokia-g310-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Nokia G310 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-zero-5g-2023-turbo-bootloader-easily-by-drfone-android/"><u>How to Unlock Infinix Zero 5G 2023 Turbo Bootloader Easily</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/kostenloze-tiff-naar-jpg-omzetting-online-verwerklijkt-door-movavi-beste-seo-titel/"><u>Kostenloze TIFF Naar JPG Omzetting Online Verwerklijkt Door Movavi - Beste SEO Titel</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/trasforma-file-alaw-a-formato-wav-gratuito-con-web-online-movavi/"><u>Trasforma File Alaw a Formato Wav Gratuito Con Web Online - Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wmawebm-movavi/"><u>원격 WMA/WEBM 변환 서비스 - 무료, Movavi 도구</u></a></li>
 </ul></div>
 
