@@ -1,7 +1,7 @@
 ---
 title: "Understanding Codecs: Roles & Functions in Video Conversion - Explained by Movavi"
-date: 2024-11-08T18:57:40.499Z
-updated: 2024-11-13T23:59:34.199Z
+date: 2024-11-21T08:26:42.451Z
+updated: 2024-11-22T23:45:28.652Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/799a97879dd8a90baa6e969f4bb05fcde15523a2765ac1b15d1b78fad2268973.jpg
@@ -28,6 +28,10 @@ Nous utilisons des cookies pour améliorer les services que nous vous proposons.
 [Télécharger](https://tools.techidaily.com/movavi/products/)
 
 ![](https://cdn.staticont.net/page_type/0023/57/3a45fddc2fda7d8feb51ac11d684aec7db796584.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 
 
@@ -266,22 +270,12 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 * Afficher le contenu de la fenêtre pendant le glissement.
 * Lisser les bords des polices d'écran.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gérer les mises à jour automatiques de Steam
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
@@ -332,18 +326,15 @@ Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de 
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment améliorer les performances de jeu sur Windows 10 (corrections avancées)
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
@@ -394,6 +385,10 @@ Pour overclocker :
 3. En option, vous pouvez également augmenter le voltage et l'horloge de la mémoire, mais surveillez de près la température de votre carte lorsque vous faites cela.
 4. Jouez à un jeu et vérifiez les performances.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Désactiver SysMain et Prefetch
 
 C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes essaient de vous aider à accéder plus rapidement aux données, mais ils ajoutent finalement des opérations inutiles qui ralentissent les jeux. Voici comment les désactiver :
@@ -425,10 +420,7 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
@@ -447,6 +439,10 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -484,22 +480,16 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 
 
 Foire aux questions 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Comment optimiser mon ordinateur pour les jeux ?
 
@@ -520,6 +510,10 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 4. Vous utilisez DirectX 11 et devez effectuer une mise à jour.
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Comment faire fonctionner un ordinateur plus rapidement ?
 
 Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, voici quelques conseils rapides :
@@ -534,6 +528,10 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 
 Lorsque l'on compare l'expérience de jeu des versions précédentes de Windows à Windows 10, l'amélioration des performances est extraordinaire. Si vous n'êtes pas sûr de vouloir faire une mise à jour, la décision est simple. Windows 10 offrira toujours une meilleure expérience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Comment obtenir 60 fps dans un jeu ?
 
 Atteindre 60 FPS dans un jeu n'est pas différent des conseils pour accélérer votre système en général, mais voici ce que vous pouvez faire :
@@ -544,13 +542,6 @@ Atteindre 60 FPS dans un jeu n'est pas différent des conseils pour accélérer 
 4. Vérifiez les paramètres graphiques de votre jeu.
 5. Installez les derniers pilotes pour votre carte graphique
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pourquoi ai-je des fps faibles sur mon PC haut de gamme ?
 
 La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoire ou la puissance nécessaire pour faire tourner le jeu à pleine vitesse. Parmi les problèmes les plus courants à l'origine d'une baisse du nombre d'images par seconde, citons les pilotes de cartes graphiques obsolètes, les cartes graphiques de qualité inférieure, les vieux processeurs et le manque de mémoire vive. 
@@ -558,13 +549,6 @@ La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoi
 Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est équipé du dernier cri. Le matériel est plus important que les autres caractéristiques de conception ou de logiciel. En outre, les jeux vidéo modernes placent toujours la barre plus haut en matière de capacité de performance, ce qui est donc relatif d'un jeu à l'autre.
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
 
@@ -601,20 +585,17 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-harmonizing-designs-using-color-principles-wisely/"><u>[New] Harmonizing Designs Using Color Principles Wisely</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-discover-the-best-open-worlds-today-in-2024/"><u>[Updated] Discover the Best Open Worlds Today, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/6-effective-ways-of-resizing-your-igtv-videos-for-2024/"><u>6 Effective Ways of Resizing Your IGTV Videos for 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/boosting-website-traffic-with-cookiebot-technology/"><u>Boosting Website Traffic with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-analytics-optimize-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimize Your Website's Performance</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-enhancing-user-experience-with-smart-analytics/"><u>Cookiebot-Driven: Enhancing User Experience with Smart Analytics</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-site-management-solutions/"><u>Cookiebot-Enabled Site Management Solutions</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-enhance-your-sites-user-experience-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Site's User Experience & Analytics</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/cookiebot-enabled-optimize-your-sites-user-experience/"><u>Cookiebot-Enabled: Optimize Your Site's User Experience</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/efficiently-setting-up-and-connecting-your-canon-printer/"><u>Efficiently Setting Up and Connecting Your Canon Printer</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/excellence-in-tiktok-making-leveraging-templates-to-stand-out-for-2024/"><u>Excellence in TikTok Making Leveraging Templates to Stand Out for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-resolve-the-0x80240034-issue-during-a-windows-10-upgrade/"><u>How to Resolve the 0X80240034 Issue During a Windows 10 Upgrade</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/the-best-video-metadata-editors-for-mac-users-easy-and-effective-for-2024/"><u>The Best Video Metadata Editors for Mac Users (Easy and Effective) for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/troubleshooting-samsung-ssd-in-windows-os-solved/"><u>Troubleshooting Samsung SSD in Windows OS [Solved]</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-windows-media-seamless-cd-extraction-for-2024/"><u>Unveiling Windows Media Seamless CD Extraction for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-10-basic-blocks-house-concepts-for-mc-players/"><u>[New] In 2024, 10 Basic Blocks House Concepts for MC Players</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtubes-time-loop-video-recovery-explained/"><u>[New] In 2024, YouTube's Time Loop Video Recovery Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-4k-desktop-screens-full-integration-and-touch/"><u>[Updated] 2024 Approved Ultimate 4K Desktop Screens Full Integration & Touch</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-15-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 15 when Phone is Broken?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pinnacle-of-picture-perfection-with-video-enhance-v22/"><u>Pinnacle of Picture Perfection with Video Enhance V2.2</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/simple-steps-for-converting-audio-formats-using-vlc-media-player/"><u>Simple Steps for Converting Audio Formats Using VLC Media Player</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-standard-mobile-eraser-for-mac-streamlined-data-deletion-processes-at-your-fingertips/"><u>Stellar Standard Mobile Eraser for Mac: Streamlined Data Deletion Processes at Your Fingertips</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-converting-sound-designer-ii-sdii-files-to-wav-format/"><u>Step-by-Step Guide: Converting Sound Designer II (SDII) Files to WAV Format</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-mastering-video-conversion-using-vlc-media-player/"><u>Step-by-Step Guide: Mastering Video Conversion Using VLC Media Player</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-trimming-and-cropping-videos-with-windows-media-player/"><u>Step-by-Step Guide: Trimming and Cropping Videos with Windows Media Player</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-tutorial-enable-and-view-flv-files-on-iphoneipad-with-one-click/"><u>Step-by-Step Tutorial: Enable & View FLV Files on iPhone/iPad with One Click</u></a></li>
 </ul></div>
 
