@@ -1,7 +1,7 @@
 ---
 title: Vaardigheid Omzetten Van RAF Archiefen Online Zonder Kosten - Movavi
-date: 2025-01-11T03:27:55.086Z
-updated: 2025-01-14T22:10:06.880Z
+date: 2025-01-15T17:08:03.098Z
+updated: 2025-01-21T16:16:15.465Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/6612d7a6b7e8b44ce845a24c9c71af5e69ea9f37b5bedb688c03953f127445f3.jpg
@@ -28,10 +28,6 @@ Nous utilisons des cookies pour améliorer les services que nous vous proposons.
 [Télécharger](https://tools.techidaily.com/movavi/products/)
 
 ![](https://cdn.staticont.net/page_type/0023/57/3a45fddc2fda7d8feb51ac11d684aec7db796584.webp)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 
 
@@ -156,9 +152,17 @@ Désactivez les services d'arrière-plan pour accélérer votre ordinateur porta
 
 Afficher plus
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Choix spécial : [Gecata by Movavi](https://www.gecata.com/)
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
@@ -169,6 +173,10 @@ Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'u
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
 
@@ -187,10 +195,6 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -218,10 +222,6 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
@@ -234,11 +234,19 @@ Pour vérifier que vous disposez de la dernière version de DirectX, appuyez sur
 
 Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra que quelques minutes. Appuyez sur la   **touche Windows** \+ **I**, choisissez **Mise à jour et sécurité** et cliquez sur **Vérifier les mises à jour** dans l'onglet **Windows. Mise à jour**. Attendez que l'installation se termine.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 
 
 Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
@@ -247,6 +255,10 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -277,10 +289,6 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 * Afficher les vignettes au lieu des icônes.
 * Afficher le contenu de la fenêtre pendant le glissement.
 * Lisser les bords des polices d'écran.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Gérer les mises à jour automatiques de Steam
 
@@ -334,15 +342,15 @@ Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de 
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 
 
 Comment améliorer les performances de jeu sur Windows 10 (corrections avancées)
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
@@ -382,10 +390,6 @@ Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et s
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Surcadencez votre carte graphique
 
 Overclocker vos cartes graphiques signifie les pousser au-delà des spécifications affichées sur la boîte. De nombreuses cartes récentes disposent d'une fonction automatique permettant de le faire dans les paramètres de contrôle, mais il existe également des moyens de le faire manuellement. Veillez à bien connaître votre carte graphique, car si vous repoussez ses limites, elle risque de surchauffer. 
@@ -418,6 +422,10 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Double-cliquez sur la valeur **REG\_DWORD EnablePrefetcher**.
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 
 
@@ -483,10 +491,6 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 Foire aux questions 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Comment optimiser mon ordinateur pour les jeux ?
 
 L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour optimiser votre ordinateur portable ou de bureau pour les jeux. Voici les principaux conseils :
@@ -517,7 +521,7 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 5. Installez de la RAM supplémentaire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Windows 10 est-il meilleur pour les jeux ?
@@ -543,11 +547,7 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
@@ -585,18 +585,24 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-insights-into-instagrams-selfie-verification/"><u>[Updated] Insights Into Instagram's Selfie Verification</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-tips-for-itunes-podcast-enrollment-for-2024/"><u>[Updated] Tips for iTunes Podcast Enrollment for 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/free-conversion-of-mp4-files-to-mkv-format-a-step-by-step-guide/"><u>Free Conversion of MP4 Files to MKV Format: A Step-by-Step Guide</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-x6-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco X6 Pro</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/online-e-gratuito-come-convertire-file-mov-in-animazioni-gif-con-movavi/"><u>OnLine E Gratuito: Come Convertire File MOV in Animazioni GIF Con Movavi!</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/online-free-conversion-transform-your-audio-files-from-m4a-to-mkv-with-ease-movavi/"><u>Online Free Conversion: Transform Your Audio Files From M4A to MKV with Ease - Movavi</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-complete-selection-of-free-online-meeting-applications/"><u>The Complete Selection of FREE Online Meeting Applications</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/top-12-voice-recorder-apps-the-ultimate-list-of-professional-quality-choices/"><u>Top 12 Voice Recorder Apps: The Ultimate List of Professional Quality Choices</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/top-15-fritt-accessa-video-stabilaapparatorer-2024-beskaeftigelse-losninger/"><u>Top 15 Fritt Accessa Video-Stabilaapparatorer 2024 - Beskæftigelse Lösninger</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-poco-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Poco Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-honor-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Honor .</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/3g2-wmv/"><u>제공자가 아니라 무료 3G2에서 WMV의 온라인 대화기 구성</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-the-art-of-video-editing-employing-strikethrough-for-clarity/"><u>[New] In 2024, The Art of Video Editing Employing Strikethrough for Clarity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-action-hunting-cameras-of-the-year/"><u>[New] In 2024, Top Action Hunting Cameras of the Year</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-instantaneously-showcasing-archived-video-sessions-via-facebook-live-for-2024/"><u>[New] Instantaneously Showcasing Archived Video Sessions via Facebook Live for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-best-vocal-modification-software-for-content-creators/"><u>2024 Approved Best Vocal Modification Software for Content Creators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-great-vr-debate-optimal-setup-for-gamers/"><u>2024 Approved The Great VR Debate Optimal Setup for Gamers?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/swf-gif-movavi/"><u>網站無成本 SWF 到 GIF 轉換 - 使用 Movavi 工具</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/alternative-internet-explorer-options-for-samsung-televisions-explained/"><u>Alternative Internet Explorer Options for Samsung Televisions Explained</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/convert-asf-files-to-mp4-for-free-with-movavis-online-toolbox/"><u>Convert ASF Files to MP4 For Free with Movavi's Online Toolbox</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/convertir-archivos-mp3-a-formatos-mp4-sin-coste-adicional-con-soluciones-de-conversion-en-linea/"><u>Convertir Archivos MP3 a Formatos Mp4 Sin Coste Adicional Con Soluciones De Conversión en Línea</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/gratuit-online-omzetten-van-webm-naar-m4a-movieblip/"><u>Gratuit Online Omzetten Van WEBM Naar M4A - MovieBlip</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c65-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Poco C65 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/m4a-file-converter-online-convert-aif-files-for-free-with-movavis-easy-tool/"><u>M4A File Converter Online: Convert AIF Files for Free with Movavi's Easy Tool</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/movavi-learning-hub-valuable-tips-and-educative-resources/"><u>Movavi Learning Hub - Valuable Tips and Educative Resources</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/movavi-tutoriel-pour-convertir-des-videos-flv-en-fichiers-audio-aiff-gratuitement-sur-internet/"><u>Movavi: Tutoriel Pour Convertir Des Vidéos FLV en Fichiers Audio AIFF Gratuitement Sur Internet</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigate-the-world-of-high-tech-hardware-with-insightful-guides-by-tom/"><u>Navigate the World of High-Tech Hardware with Insightful Guides by Tom</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/scatta-foto-raw-a-jpeg-online-per-gratis-con-convertitore-movavi/"><u>Scatta Foto RAW a JPEG Online per Gratis Con Convertitore Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-guide-mastering-the-art-of-video-reversal/"><u>Step-by-Step Guide: Mastering the Art of Video Reversal</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oneplus-nord-ce-3-lite-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For OnePlus Nord CE 3 Lite 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-correct-viewing-sequence-for-all-conjuring-movies-a-step-by-step-guide/"><u>The Correct Viewing Sequence for All 'Conjuring' Movies: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

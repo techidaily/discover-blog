@@ -1,7 +1,7 @@
 ---
 title: "Mastering Your Slides: The Ultimate Guide Using Movavi's Slideshow App"
-date: 2025-01-08T22:28:35.266Z
-updated: 2025-01-15T05:13:07.146Z
+date: 2025-01-15T16:25:04.149Z
+updated: 2025-01-21T16:47:47.483Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/a6435a313e4469213bebd5ae38a7530a7b0364be00feda91bc9b60c48edb8ed3.jpg
@@ -29,6 +29,10 @@ Nous utilisons des cookies pour améliorer les services que nous vous proposons.
 
 ![](https://cdn.staticont.net/page_type/0023/57/3a45fddc2fda7d8feb51ac11d684aec7db796584.webp)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 
 
 Comment optimiser Windows 10 pour le jeu
@@ -45,6 +49,10 @@ Si vous avez besoin d'un enregistreur de jeu, essayez Gecata by Movavi.
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [![](https://cdn.staticont.net/pages/0023/55/8e3299ceec11a282886103c3bfcf9215af3372c3.webp)](https://tools.techidaily.com/movavi/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Édité par [Elinor Zucchet](https://tools.techidaily.com/movavi/products/)
 
@@ -156,6 +164,10 @@ Afficher plus
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
@@ -175,6 +187,10 @@ Le PC surpasse les consoles à cet égard, car il est toujours possible d'accél
 Cet article vous présente les réglages de performance pour les jeux que vous pouvez effectuer sur Windows 10 pour améliorer votre expérience de jeu.
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 
 
@@ -222,10 +238,6 @@ Pour vérifier que vous disposez de la dernière version de DirectX, appuyez sur
 
 Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra que quelques minutes. Appuyez sur la   **touche Windows** \+ **I**, choisissez **Mise à jour et sécurité** et cliquez sur **Vérifier les mises à jour** dans l'onglet **Windows. Mise à jour**. Attendez que l'installation se termine.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 
 
 Utiliser le mode de jeu Windows 10
@@ -239,10 +251,6 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -279,7 +287,7 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
@@ -338,10 +346,6 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optez pour un SSD
 
 ![](https://cdn.staticont.net/pages/0012/47/f8270db0638748de336b7f11de9f898510486d54.webp)
@@ -359,6 +363,10 @@ Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tou
 Le choix de la première mise à niveau dépend des types de jeux auxquels vous jouez. Si vous n'avez pas besoin de graphismes extrêmes et jouez à des jeux plus rapides, le processeur est le meilleur choix. Mais si vous aimez les histoires numériques ou les jeux basés sur le monde avec beaucoup de personnages et d'arrière-plans non jouables, un GPU pourrait vous être plus utile.
 
 Quoi qu'il en soit, assurez-vous que l'équilibre des performances entre les deux est délicat, car l'un ne fonctionne pas sans l'autre. Vérifiez la mémoire et la bande passante de toute mise à niveau potentielle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mettez votre RAM à niveau
 
@@ -417,10 +425,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 ### Utiliser une alimentation externe
@@ -476,7 +480,7 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 
@@ -503,7 +507,7 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Comment faire fonctionner un ordinateur plus rapidement ?
@@ -517,7 +521,7 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 5. Installez de la RAM supplémentaire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Windows 10 est-il meilleur pour les jeux ?
@@ -534,10 +538,6 @@ Atteindre 60 FPS dans un jeu n'est pas différent des conseils pour accélérer 
 4. Vérifiez les paramètres graphiques de votre jeu.
 5. Installez les derniers pilotes pour votre carte graphique
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Pourquoi ai-je des fps faibles sur mon PC haut de gamme ?
 
 La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoire ou la puissance nécessaire pour faire tourner le jeu à pleine vitesse. Parmi les problèmes les plus courants à l'origine d'une baisse du nombre d'images par seconde, citons les pilotes de cartes graphiques obsolètes, les cartes graphiques de qualité inférieure, les vieux processeurs et le manque de mémoire vive. 
@@ -547,7 +547,7 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
@@ -585,19 +585,21 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-best-cloud-storage-deals-prices-to-watch-for-2024/"><u>[New] Best Cloud Storage Deals – Prices to Watch for 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/1726226897624-202/"><u>「未来视界：202</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/achieve-higher-interactions-mastering-the-art-of-square-videos-for-2024/"><u>Achieve Higher Interactions Mastering the Art of Square Videos for 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/apng-movavin/"><u>APNGファイル自動変換サービスオンラインで不可能に? - Movaviの安心無料オプショn</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/game-of-thrones-ringtones-15-best-websites-reviewed-and-ranked-for-2024/"><u>Game of Thrones Ringtones 15 Best Websites Reviewed and Ranked for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-samsung-galaxy-m34-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Samsung Galaxy M34 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/movavijpegarwf/"><u>Movaviで簡単JPEGをARWFに自由費用で変換</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/safeguarded-multimedia-management-with-movavi-the-ultimate-software-experience/"><u>Safeguarded Multimedia Management with Movavi - The Ultimate Software Experience</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-illustrators-journey-navigating-for-success-in-designing-for-2024/"><u>The Illustrator's Journey Navigating for Success in Designing for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-handheld-gaming-units-for-202n4/"><u>The Ultimate Selection of Handheld Gaming Units for 202N4</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-the-best-magsafe-wallets-of-2024-in-depth-testing-and-expert-opinions-zdnet/"><u>Ultimate Guide to the Best MagSafe Wallets of 2024: In-Depth Testing & Expert Opinions | ZDNet</u></a></li>
-<li><a href="https://extra-information.techidaily.com/uncovering-inexpensive-deals-for-your-gopro-camera/"><u>Uncovering Inexpensive Deals for Your GoPro Camera</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/zoom-forklaringer-kunderne-ikke-er-tilbage-se-hvordan-du-skal-holde-bedst-practiserede-moter-uden-forskrivning/"><u>Zoom-Forklaringer: Kunderne Ikke Er Tilbage - Se, Hvordan Du Skal Holde Bedst Practiserede Møter Uden Førskrivning</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/wi-fi-mov-wav/"><u>무료 Wi-Fi MOV WAV 변환 - 오픈소스 제공 솔루션</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[New] 2024 Approved Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-video-transformation-pics-and-tunes-fusion/"><u>[New] 2024 Approved Video Transformation Pics and Tunes Fusion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-emancipate-your-engagement-facebook-restored/"><u>[New] Emancipate Your Engagement Facebook Restored</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breach-overcome-restoring-your-facebook-access/"><u>[New] In 2024, Breach Overcome Restoring Your Facebook Access</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1-easy-and-professional-photo-editing-with-movavi-download-now/"><u>1. Easy and Professional Photo Editing with Movavi - Download Now</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-narrating-real-life-how-to-write-engaging-docu-scripts/"><u>2024 Approved Narrating Real Life How to Write Engaging Docu-Scripts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-peeling-back-the-layers-of-magix-image-suite/"><u>2024 Approved Peeling Back the Layers of MAGIX Image Suite</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726222947961-mp3mp4-movavi/"><u>無料の動画ファイル変換サービス - MP3/MP4にリマップ: Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mp3mpeg-movavi/"><u>無限制線上將音樂MP3變成影片MPEG格式 - 使用Movavi的轉換器指南</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/essential-gopro-hacks-proven-techniques-for-novices-and-experts/"><u>Essential GoPro Hacks: Proven Techniques for Novices and Experts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-y100-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo Y100 5G</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-economical-pc-monitoring-devices/"><u>In 2024, Economical PC Monitoring Devices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/insightful-analysis-the-dji-inspire-2-story-for-2024/"><u>Insightful Analysis - The DJI Inspire 2 Story for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/kostenloze-tiff-naar-jpg-omzetting-online-verwerklijkt-door-movavi-beste-seo-titel/"><u>Kostenloze TIFF Naar JPG Omzetting Online Verwerklijkt Door Movavi - Beste SEO Titel</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/trasforma-file-alaw-a-formato-wav-gratuito-con-web-online-movavi/"><u>Trasforma File Alaw a Formato Wav Gratuito Con Web Online - Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/wmawebm-movavi/"><u>원격 WMA/WEBM 변환 서비스 - 무료, Movavi 도구</u></a></li>
 </ul></div>
 
